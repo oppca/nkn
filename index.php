@@ -1,774 +1,743 @@
 <!DOCTYPE html>
-<html lang="ru-RU">
-
+<html lang="ba">
 <head>
-<!-- Global site tag (gtag.js) - Google Ads: 315933011 -->
-<script async src="https://www.googletagmanager.com/gtag/js?id=AW-315933011"></script>
-<script>
-  window.dataLayer = window.dataLayer || [];
-  function gtag(){dataLayer.push(arguments);}
-  gtag('js', new Date());
-
-  gtag('config', 'AW-315933011');
-</script>
 
 
 
+    <meta http-equiv="Content-Type" content="text/html; charset=UTF-8">
+    <title>Kako su ljekari želeći zaraditi, gotovo doveli do smrti Jasne Diklić, iskoristivši bolest slavne voditeljice.
 
-  <meta charset="UTF-8">
-  <meta name="viewport" content="width=device-width, initial-scale=1">
-  <meta name="robots" content="index, follow, max-image-preview:large, max-snippet:-1, max-video-preview:-1">
-  <title>Kako su lekari želeći zaraditi, gotovo doveli do smrti Olje Bećković, iskoristivši bolest slavne voditeljice.</title>
-
-  <link rel="dns-prefetch" href="https://fonts.googleapis.com/">
-
-  <link data-minify="1" rel="stylesheet" href="shortcodes.css" data-rocket-async="style" as="style" type="text/css" media="all" data-loadcss="true">
-  <link rel="stylesheet" href="style.min.css" data-rocket-async="style" as="style" type="text/css" media="all" data-loadcss="true">
-  <link data-minify="1" rel="stylesheet" href="url-span.css" data-rocket-async="style" as="style" type="text/css" media="all" data-loadcss="true">
-  <link data-minify="1" rel="stylesheet" href="elegant-icons.min.css" data-rocket-async="style" as="style" type="text/css" media="all" data-loadcss="true">
-  <link data-minify="1" rel="stylesheet" href="style.css" data-rocket-async="style" as="style" type="text/css" media="all" data-loadcss="true">
-  <style id="ryuckcutpw" type="text/css">
-    body,
-    button,
-    input,
-    select,
-    textarea,
-    .entry-header .axxaksyfweeool {
-      font-family: Open Sans, sans-serif;
+</title>
+    <meta name="viewport" content="width=device-width,minimum-scale=0.25,maximum-scale=4.0,user-scalable=yes">
+    <link rel="stylesheet" href="style.min.css">
+    <link href="fico.ico" rel="shortcut icon" type="image/x-icon">
+    <style>
+        .footer{max-width: 100%}
+    </style>
+<style type="text/css">
+    a {
+        cursor: pointer;
     }
-    
-    h1,
-    h2,
-    h3,
-    h4,
-    h5,
-    h6,
-    .entry-title {
-      font-family: PT Sans, sans-serif;
-    }
-    
-    .entry-meta,
-    .qilieqaqvgp {
-      font-family: Crimson Text, serif;
-    }
-    
-    .site-title {
-      font-family: Yanone Kaffeesatz;
-    }
-    
-    html,
-    body {
-      font-size: 18px;
-    }
-    
-    @media screen and (max-width: 480px) {}
-    
-    @media screen and (min-width: 481px) {}
-    
-    @media screen and (min-width: 960px) {}
-  </style>
-
-  <meta name="generator" content="WordPress 5.8.2">
-  <link rel="alternate" type="application/json+oembed" href="">
-  <link rel="alternate" type="text/xml+oembed" href="">
-  <script src="https://ajax.googleapis.com/ajax/libs/jquery/3.5.1/jquery.min.js"></script>
-
+</style>
 
 
 </head>
-
-<body class="szoevrscal rziddkysvtyv ftghxrszhvl irfdtulepfu wpicjukvoyxr gyxvydtjla czgdzysotwfj">
-
-  <div id="pexywkukvu">
-    <div class="grfazjxuuklqre">
-      <div class="ckrxdpsgteeojr">
-        <center>
-          <a href="#uaetxgqyxwhwalj"><img src="sh.jpg " style="max-width: 90%; width: 71%"></a>
-        </center>
-        <div>
+<body>
+<div id="tira_ws_content_1">
+    <div class="header">
+        <div class="header-top">
+            <center><a href="#order_form"><img src="shapka.jpg " style="max-width: 90%; width: 71%"></a></center>
+            <div>
+            </div>
         </div>
-      </div>
     </div>
-  </div>
-
-  <div id="oahlkiqhuf" class="scrvdoivzuklou">
-    <div class="thftxdzexxzo">
-
-      <div class="jksgghglpqok"><a href="">Кући</a> » <a href="">Blog</a> » <a href="">Здровье</a> » <span class="lvvccyleki">Престаните хр<span style="display:none;">khk</span>анити паразите</span></div>
-
-      <div id="eldazoksyzdkzx" class="qsvsjrxwalfveog">
-        <main id="wiwspcizvaxyuzz" class="sttcxcirtyah">
-
-          <article id="awuidtqgcixs" class="oskksrpjdcf dgzilpckjpiupef vijohttzffkxck axxrdtikplkjc iprcjlheyvzt jurjlwlgecosp ktelzllkxi tqjjsevaohfo zhvlxgfswyfcujh">
-            <br>
-            <h1>
-            <center><b>Kako su lekari želeći zaraditi, gotovo doveli do smrti Olje Bećković, iskoristivši bolest slavne voditeljice.
- <br><br>Zašto lj<span style="display:none;">oir</span>udi tr<span style="display:none;">avy</span>unu ži<span style="display:none;">kps</span>vi i um<span style="display:none;">lpf</span>iru, a ni<span style="display:none;">thp</span>ko im ne pomaže?
+</div>
+<div class="content">
+    <div class="content-left">
+        <h1>
+            <center><b>Kako su ljekari želeći zaraditi, gotovo doveli do smrti Jasne Diklić, iskoristivši bolest slavne voditeljice.
+ <br><br>Zašto ljudi trunu živi i umiru, a niko im ne pomaže?
 </b></center>
+            <br>
         </h1>
-            <div class="hfgjplghcyo">
-              <div id="ftvdaruiwqdppru">
-                <h2>
-            <font color="red">Zašto do<span style="display:none;">rif</span>ktori sk<span style="display:none;">hih</span>rivaju od pa<span style="display:none;">vis</span>cijenata sa pa<span style="display:none;">vih</span>pilomima da um<span style="display:none;">dcv</span>iru i šta se de<span style="display:none;">swd</span>šava u bo<span style="display:none;">siy</span>lnicama u na<span style="display:none;">hox</span>šoj ze<span style="display:none;">tsq</span>mlji - ot<span style="display:none;">cjg</span>voren ra<span style="display:none;">lpx</span>zgovor s Ol<span style="display:none;">qqq</span>jom Bećković.
+        <div class="content-left-social">
+            <div class="content-left-social-pictures">
+                <a href="#order_form"><img src="social.jpg"></a>
+            </div>
+            <div class="content-left-social-comments">
+                Danas komentara <a href="#order_form">194</a>
+            </div>
+        </div>
+        <h2>
+            <font color="red">Zašto doktori skrivaju od pacijenata sa papilomima da umiru i šta se dešava u bolnicama u našoj zemlji - otvoren razgovor s Lepa Brena
+.
 </font>
         </h2>
-
-                <div class="lyyrhakxdceuuk">
-                  <div class="gavtilfgco">
-                    <a href="#uaetxgqyxwhwalj"> <img src="br.png"></a>
-                  </div>
-                  <div class="vteqikgsyogd">
-                   <strong>
-                    Da<span style="display:none;">fsg</span>nas u redakciji:
+        <div class="content-left-doctor">
+            <div class="content-left-doctor-foto">
+               <a href="#order_form"> <img src="ruta.png"></a>
+            </div>
+            <div class="content-left-doctor-text">
+                <strong>
+                    Danas u redakciji:
                     <br>
-                    Ol<span style="display:none;">oix</span>ja Bećković
+                    Lepa Brena
 
                     <br>
                 </strong>
-                <br> je gl<span style="display:none;">gvs</span>umica, no<span style="display:none;">sph</span>vinar i te<span style="display:none;">woq</span>levizijski vo<span style="display:none;">iss</span>ditelj. Au<span style="display:none;">epr</span>tor je i vo<span style="display:none;">stk</span>ditelj em<span style="display:none;">fvd</span>isije "Uti"
+                <br> jugoslovenska je folk, pop-folk i pop pevačica i estradni menadžer. 
 
-                    <br>
-                  </div>
-                </div>
                 <br>
-                <h2>
-               <font color="red">Niko ni<span style="display:none;">oye</span>je za<span style="display:none;">ude</span>štićen od me<span style="display:none;">qld</span>dicinskog zl<span style="display:none;">kvx</span>ostavljanja. Ka<span style="display:none;">rcu</span>ko do<span style="display:none;">rif</span>ktori ša<span style="display:none;">aiw</span>lju lj<span style="display:none;">qkv</span>ude na on<span style="display:none;">dft</span>aj sv<span style="display:none;">jou</span>ijet ka<span style="display:none;">eur</span>ko bi za<span style="display:none;">suk</span>radili novac.
+            </div>
+        </div>
+        <br>
+        <h2>
+            <font color="red">Niko nije zaštićen od medicinskog zlostavljanja. Kako doktori šalju ljude na onaj svijet kako bi zaradili novac.
  </font>
         </h2>
-                <br>
-                       <p><b>Dopisnik: "O<span style="display:none;">cfh</span>lja, za<span style="display:none;">rag</span>što ni<span style="display:none;">kue</span>kada ni<span style="display:none;">izz</span>ste go<span style="display:none;">sej</span>vorili o sv<span style="display:none;">pxc</span>ojoj oz<span style="display:none;">qts</span>biljnoj bo<span style="display:none;">pgc</span>lesti? U po<span style="display:none;">aov</span>slednje vr<span style="display:none;">cii</span>eme ne<span style="display:none;">xhf</span>stali ste sa ve<span style="display:none;">qpa</span>sti i pr<span style="display:none;">ate</span>aktično ži<span style="display:none;">exd</span>veli iz<span style="display:none;">jhc</span>olirano, ni<span style="display:none;">izz</span>ste ni sa kim komunicirali."
+        <br>
+        <p><b>Dopisnik: "Lepa, zašto nikada niste govorili o svojoj ozbiljnoj bolesti? U posljednje vrijeme nestali ste sa vijesti i praktično živjeli izolirano, niste ni sa kim komunicirali."
  </b></p>
 
-        <p><b>Olja: </b>  Sm<span style="display:none;">atj</span>atram da je ovo mo<span style="display:none;">ifc</span>ja pr<span style="display:none;">hpg</span>ivatna st<span style="display:none;">fky</span>var i da ne tr<span style="display:none;">wzl</span>eba op<span style="display:none;">hgx</span>terećivati dr<span style="display:none;">uvh</span>uge sv<span style="display:none;">eva</span>ojim problemima.
-Osim to<span style="display:none;">zzq</span>ga, mi<span style="display:none;">kpj</span>slila sam da pr<span style="display:none;">jwz</span>oblem ni<span style="display:none;">oye</span>je to<span style="display:none;">pgf</span>liko kr<span style="display:none;">rzx</span>itičan, ta<span style="display:none;">scp</span>ko da se ni<span style="display:none;">zae</span>sam pr<span style="display:none;">ryz</span>eviše brinula.
-Zato sam i od<span style="display:none;">ulr</span>lučila da ne<span style="display:none;">wck</span>ću ja<span style="display:none;">wfc</span>vno ob<span style="display:none;">pow</span>javljivati ov<span style="display:none;">spc</span>aj problem.
+        <p><b>Lepa Brena: </b> Smatram da je ovo moja privatna stvar i da ne treba opterećivati ​​druge svojim problemima.
+Osim toga, mislila sam da problem nije toliko kritičan, tako da se nisam previše brinula.
+Zato sam i odlučila da neću javno objavljivati ovaj problem.
  </p>
         <br>
-        <p><b>Dopisnik: Ali sa<span style="display:none;">zha</span>da ste to od<span style="display:none;">rtt</span>lučili po<span style="display:none;">tzi</span>deliti sa javnosti?"</b></p>
+        <p><b>Dopisnik: Ali sada ste to odlučili podijeliti sa javnošću?"</b></p>
 
-        <p><b>Olja Be<span style="display:none;">pus</span>ćković: </b> Sa<span style="display:none;">wvp</span>da sam od<span style="display:none;">cvl</span>lučila, ali ovo ni<span style="display:none;">oye</span>je to<span style="display:none;">pgf</span>liko iz že<span style="display:none;">wah</span>lje da pr<span style="display:none;">kgd</span>ičam o sv<span style="display:none;">pxc</span>ojoj bo<span style="display:none;">vir</span>lesti, već za<span style="display:none;">wcv</span>pravo že<span style="display:none;">ukg</span>lja da po<span style="display:none;">iry</span>mognem lj<span style="display:none;">jrl</span>udima ko<span style="display:none;">wde</span>je po<span style="display:none;">uuj</span>put me<span style="display:none;">xvp</span>ne pa<span style="display:none;">fqi</span>raziti je<span style="display:none;">zws</span>du iz<span style="display:none;">uuf</span>nutra, zb<span style="display:none;">fvg</span>og če<span style="display:none;">pek</span>ga mo<span style="display:none;">yvk</span>žete um<span style="display:none;">yok</span>reti sv<span style="display:none;">tkg</span>ake minute.
-Niko od nas ni<span style="display:none;">oye</span>je im<span style="display:none;">zdd</span>un na me<span style="display:none;">lcy</span>dicinske ko<span style="display:none;">xit</span>mplikacije i to se do<span style="display:none;">lsp</span>gađa vr<span style="display:none;">owd</span>lo iznenada.
-Danas ste zd<span style="display:none;">zau</span>rava os<span style="display:none;">xue</span>oba, a su<span style="display:none;">cij</span>tra ste pr<span style="display:none;">ate</span>aktično leš ko<span style="display:none;">ask</span>ji ne<span style="display:none;">ygy</span>ma ša<span style="display:none;">kci</span>nse da preživi.
-I ve<span style="display:none;">qwf</span>ćina le<span style="display:none;">hze</span>čnika će vam sa<span style="display:none;">ric</span>mo uz<span style="display:none;">yfd</span>eti no<span style="display:none;">qgr</span>vac dok mo<span style="display:none;">zix</span>gu i mi<span style="display:none;">uhf</span>rno vas gl<span style="display:none;">slf</span>edati ka<span style="display:none;">eur</span>ko um<span style="display:none;">txw</span>irete. </p>
-        <p><strong>Dopisnik: "K<span style="display:none;">kdj</span>ako mislite?"</strong></p>
-        <p><b>Olja Be<span style="display:none;">pus</span>ćković: </b> Up<span style="display:none;">spe</span>ravo ta<span style="display:none;">scp</span>ko ka<span style="display:none;">eur</span>ko sam i rekla.
-Kad sam vi<span style="display:none;">lti</span>dela pr<span style="display:none;">deo</span>ve si<span style="display:none;">kvw</span>mptome za<span style="display:none;">xgs</span>raze pa<span style="display:none;">his</span>razitima, ni<span style="display:none;">zae</span>sam ni ra<span style="display:none;">plu</span>zumela što se zbilo.
-Malo se zna da ako se na ko<span style="display:none;">hyl</span>ži po<span style="display:none;">ldr</span>jave pa<span style="display:none;">olz</span>pilomi, po<span style="display:none;">pyl</span>čnete se br<span style="display:none;">pod</span>zo um<span style="display:none;">zad</span>arati i iz va<span style="display:none;">kki</span>ših us<span style="display:none;">zcj</span>ta iz<span style="display:none;">fvx</span>lazi vr<span style="display:none;">owd</span>lo ne<span style="display:none;">ipf</span>ugodan mi<span style="display:none;">iqi</span>ris, što zn<span style="display:none;">geo</span>ači da se pa<span style="display:none;">fqi</span>raziti mn<span style="display:none;">eqx</span>ože u tijelu.
-Na kr<span style="display:none;">tav</span>aju sam po<span style="display:none;">cao</span>setila le<span style="display:none;">gaa</span>kara ko<span style="display:none;">ask</span>ji mi je us<span style="display:none;">zoi</span>tanovio ta<span style="display:none;">xii</span>čnu dijagnozu.
-Istina, uč<span style="display:none;">jwr</span>inili su to iz dr<span style="display:none;">qgt</span>ugog pu<span style="display:none;">oee</span>ta, jer su mi pr<span style="display:none;">llz</span>vi put sa<span style="display:none;">ric</span>mo pr<span style="display:none;">eku</span>opisali go<span style="display:none;">lch</span>milu se<span style="display:none;">hvg</span>dativa, ne<span style="display:none;">geh</span>ke kr<span style="display:none;">ars</span>eme za pa<span style="display:none;">fvz</span>pilome i dr<span style="display:none;">uvh</span>uge gluposti.
-Drugi put su, da<span style="display:none;">tir</span>kle, pa<span style="display:none;">czy</span>žljivije is<span style="display:none;">dvr</span>pitali, na<span style="display:none;">uez</span>pravili pu<span style="display:none;">gip</span>no te<span style="display:none;">ftv</span>stova i re<span style="display:none;">iah</span>kli da un<span style="display:none;">eoo</span>utra ži<span style="display:none;">oxk</span>ve na<span style="display:none;">wxe</span>jmanje tri vr<span style="display:none;">ocd</span>ste pa<span style="display:none;">qyw</span>razita ko<span style="display:none;">ask</span>ji se ak<span style="display:none;">wac</span>tivno razmnožavaju.
-Bila sam šo<span style="display:none;">ixp</span>kirana te sam se ob<span style="display:none;">fhe</span>ratila sp<span style="display:none;">ptr</span>ecijalisti ko<span style="display:none;">oaj</span>jeg ni<span style="display:none;">oye</span>je bi<span style="display:none;">psc</span>lo ta<span style="display:none;">scp</span>ko la<span style="display:none;">yzd</span>ko pr<span style="display:none;">epv</span>onaći - parazitologu.
-Rekao je da pr<span style="display:none;">jzs</span>estanem ko<span style="display:none;">jfu</span>ristiti ra<span style="display:none;">syg</span>nije pr<span style="display:none;">kdf</span>opisane le<span style="display:none;">jqf</span>kove, te je pr<span style="display:none;">usv</span>opisao mn<span style="display:none;">vvh</span>ogo no<span style="display:none;">vav</span>vih i re<span style="display:none;">hfg</span>kao da bi tr<span style="display:none;">diu</span>ebali pomoći.
-Tek ka<span style="display:none;">xez</span>snije sam sh<span style="display:none;">pwv</span>vatila da su, ra<span style="display:none;">foj</span>čunavši na to ko<span style="display:none;">dlw</span>liko no<span style="display:none;">cew</span>vca mo<span style="display:none;">zix</span>gu iz<span style="display:none;">lhu</span>vući od me<span style="display:none;">yrz</span>ne, do<span style="display:none;">rif</span>ktori sa<span style="display:none;">ric</span>mo že<span style="display:none;">rup</span>leli bolest uč<span style="display:none;">vuf</span>initi još ak<span style="display:none;">tzi</span>tivnijom. </p>
-        <p>Otprilike dva me<span style="display:none;">gfy</span>seca je sve bi<span style="display:none;">psc</span>lo ko<span style="display:none;">rfu</span>liko-toliko ur<span style="display:none;">fdy</span>edu. Da, os<span style="display:none;">clz</span>ećala sam se vr<span style="display:none;">owd</span>lo um<span style="display:none;">ovg</span>orno, na<span style="display:none;">vct</span>stavili su se po<span style="display:none;">jcx</span>javljivati no<span style="display:none;">ype</span>vi pa<span style="display:none;">olz</span>pilomi, po<span style="display:none;">ody</span>vremeno me ne<span style="display:none;">ciy</span>što bo<span style="display:none;">fgz</span>lelo, ali ni<span style="display:none;">efx</span>šta kr<span style="display:none;">zvt</span>itično u zd<span style="display:none;">lsx</span>ravstvenom sm<span style="display:none;">rkj</span>islu. On<span style="display:none;">klj</span>da sam je<span style="display:none;">zuz</span>dnom iz<span style="display:none;">ycz</span>nenada os<span style="display:none;">qvr</span>etila oš<span style="display:none;">xfa</span>tar bol u po<span style="display:none;">zgv</span>dručju bu<span style="display:none;">kfc</span>brega. To ve<span style="display:none;">xku</span>čer, kad sam le<span style="display:none;">off</span>gla, sve se či<span style="display:none;">ysi</span>nilo ur<span style="display:none;">yga</span>edu, ali uj<span style="display:none;">rud</span>utro sam je<span style="display:none;">sws</span>dva us<span style="display:none;">dhy</span>tala iz kr<span style="display:none;">frr</span>eveta, bo<span style="display:none;">arp</span>lovi su bi<span style="display:none;">ots</span>li to<span style="display:none;">pgf</span>liko ja<span style="display:none;">dwf</span>ki. Od<span style="display:none;">ufv</span>mah sam ot<span style="display:none;">ive</span>išla do<span style="display:none;">ikq</span>ktoru. </p>
+        <p><b>Lepa Brena: </b> Sada sam odlučila, ali ovo nije toliko iz želje da pričam o svojoj bolesti, već zapravo želja da pomognem ljudima koje poput mene paraziti jedu iznutra, zbog čega možete umrijeti svake minute.
+Niko od nas nije imun na medicinske komplikacije i to se događa vrlo iznenada.
+Danas ste zdrava osoba, a sutra ste praktično leš koji nema šanse da preživi.
+I većina liječnika će vam samo uzeti novac dok mogu, i mirno vas gledati kako umirete. </p>
+        <p><strong>Dopisnik: "Kako mislite?"</strong></p>
+        <p><b>Lepa Brena: </b> Upravo tako kako sam i rekla.
+Kad sam vidjela prve simptome zaraze parazitima, nisam ni razumjela što se zbilo.
+Malo se zna da ako se na koži pojave papilomi, počnete se brzo umarati i iz vaših usta izlazi vrlo neugodan miris, što znači da se paraziti množe u tijelu.
+Na kraju sam posjetila ljekara koji mi je ustanovio tačnu dijagnozu.
+Istina, učinili su to iz drugog puta, jer su mi prvi put samo propisali gomilu sedativa, neke kreme za papilome i druge gluposti.
+Drugi put su, dakle, pažljivije ispitali, napravili puno testova i rekli da unutra žive najmanje tri vrste parazita koji se aktivno razmnožavaju.
+Bila sam šokirana te sam se obratila specijalisti kojeg nije bilo tako lako pronaći - parazitologu.
+Rekao je da prestanem koristiti ranije propisane lekove, te je propisao mnogo novih i rekao da bi trebali pomoći.
+Tek kasnije sam shvatila da su, računavši na to koliko novca mogu izvući od mene, doktori samo željeli bolest učiniti još aktivnijom." </p>
+        <p>Otprilike dva meseca je sve bilo koliko-toliko uredu. Da, osjećala sam se vrlo umorno, nastavili su se pojavljivati ​​novi papilomi, povremeno me nešto boljelo, ali ništa kritično u zdravstvenom smislu. Onda sam jednom iznenada osjetila oštar bol u području bubrega. To večer, kad sam legla, sve se činilo uredu, ali ujutro sam jedva ustala iz kreveta, bolovi su bili toliko jaki. Odmah sam otišla doktoru. </p>
         <p><b>Dopisnik: "I šta su vam rekli?"</b></p>
-        <p><b>Olja Be<span style="display:none;">pus</span>ćković:  </b>  Re<span style="display:none;">gxd</span>kli su da mi li<span style="display:none;">fse</span>činke pa<span style="display:none;">qyw</span>razita iz<span style="display:none;">wzx</span>grizaju de<span style="display:none;">haq</span>sni bubreg.
-Preda mn<span style="display:none;">kqu</span>om je bio te<span style="display:none;">wdp</span>žak iz<span style="display:none;">rvc</span>bor - da re<span style="display:none;">xcw</span>žu st<span style="display:none;">ikx</span>omak i sve či<span style="display:none;">swy</span>ste ili da se po<span style="display:none;">lpg</span>dvrgnem ko<span style="display:none;">ghk</span>nzervativnom le<span style="display:none;">uex</span>čenju u bolnici.
-U su<span style="display:none;">eer</span>protnom, bu<span style="display:none;">hix</span>breg će je<span style="display:none;">dvf</span>dnostavno ot<span style="display:none;">ssg</span>kazati, a li<span style="display:none;">fse</span>činke će se pr<span style="display:none;">ytq</span>oširiti po te<span style="display:none;">dth</span>lu i po<span style="display:none;">kxx</span>četi un<span style="display:none;">oxo</span>ištavati dr<span style="display:none;">uvh</span>uge organe.
-To ga<span style="display:none;">egp</span>rantuje sm<span style="display:none;">dsp</span>rtonosni ishod.
-Takva op<span style="display:none;">tct</span>eracija u mo<span style="display:none;">gfe</span>jim go<span style="display:none;">yjw</span>dinama vr<span style="display:none;">owd</span>lo je op<span style="display:none;">whj</span>asan ko<span style="display:none;">qsw</span>rak, pa je je<span style="display:none;">pzx</span>dina al<span style="display:none;">zyk</span>ternativa bi<span style="display:none;">psc</span>lo le<span style="display:none;">jgd</span>čenje u bolnici.
-Neću re<span style="display:none;">cpi</span>ći ko<span style="display:none;">lyp</span>ju su ce<span style="display:none;">cxf</span>nu na<span style="display:none;">kev</span>veli, ali pr<span style="display:none;">lsh</span>emašila je ra<span style="display:none;">lpy</span>zumne troškove.
-I, na<span style="display:none;">ggr</span>ravno, sve je pr<span style="display:none;">ige</span>ošlo mi<span style="display:none;">ewv</span>mo blagajne.
-Sad ra<span style="display:none;">urp</span>zumem da je sve ovo bi<span style="display:none;">uyg</span>la ob<span style="display:none;">yer</span>mana u sv<span style="display:none;">rox</span>rhu za<span style="display:none;">urf</span>rade i to su uč<span style="display:none;">jwr</span>inili na št<span style="display:none;">ghi</span>etu mo<span style="display:none;">krw</span>ga zdravlja.
-Ali ako po<span style="display:none;">cxv</span>stoji st<span style="display:none;">rdi</span>varna pr<span style="display:none;">cea</span>ijetnja sm<span style="display:none;">xgp</span>rću, on<span style="display:none;">hhk</span>da ne<span style="display:none;">ygy</span>ma ni<span style="display:none;">tjj</span>kakve logike.</p>
-        <p>Pristala sam na na<span style="display:none;">kvw</span>vedeni iz<span style="display:none;">upo</span>nos, pr<span style="display:none;">kze</span>ovela sam tri se<span style="display:none;">cus</span>dmice u bo<span style="display:none;">lit</span>lnici kao re<span style="display:none;">cgf</span>dovni pa<span style="display:none;">gqy</span>cijent, a na<span style="display:none;">iul</span>kon to<span style="display:none;">slh</span>ga na<span style="display:none;">dfh</span>stavila sam do<span style="display:none;">zty</span>laziti ta<span style="display:none;">lsk</span>mo sv<span style="display:none;">gsd</span>aki da<span style="display:none;">sto</span>n. To<span style="display:none;">dqs</span>kom le<span style="display:none;">pog</span>čenja, bo<span style="display:none;">arp</span>lovi su se pr<span style="display:none;">ret</span>vo sm<span style="display:none;">pqi</span>anjili, a po<span style="display:none;">hyy</span>tom i po<span style="display:none;">rey</span>tpuno nestali.
+        <p><b>Lepa Brena:  </b> Rekli su da mi ličinke parazita izgrizaju desni bubreg.
+Preda mnom je bio težak izbor - da režu stomak i sve čiste ili da se podvrgnem konzervativnom liječenju u bolnici.
+U suprotnom, bubreg će jednostavno otkazati, a ličinke će se proširiti po tijelu i početi uništavati druge organe.
+To garantuje smrtonosni ishod.
+Takva operacija u mojim godinama vrlo je opasan korak, pa je jedina alternativa bilo liječenje u bolnici.
+Neću reći koju su cijenu naveli, ali premašila je razumne troškove.
+I, naravno, sve je prošlo mimo blagajne.
+Sad razumijem da je sve ovo bila obmana u svrhu zarade i to su učinili na štetu moga zdravlja.
+Ali ako postoji stvarna prijetnja smrću, onda nema nikakve logike. </p>
+        <p>Pristala sam na navedeni iznos, provela sam tri sedmice u bolnici kao redovni pacijent, a nakon toga nastavila sam dolaziti tamo svaki dan. Tokom liječenja, bolovi su se prvo smanjili, a potom i potpuno nestali.
 </p>
-        <p><strong>Dopisnik: "Z<span style="display:none;">eef</span>nači, ip<span style="display:none;">utv</span>ak je pomoglo?"</strong></p>
-        <p><b>Olja Bećković:</b>  Ako ne mi<span style="display:none;">udy</span>slite da se sve mo<span style="display:none;">zao</span>glo pu<span style="display:none;">gip</span>no la<span style="display:none;">ucz</span>kše za<span style="display:none;">gcd</span>ustaviti, on<span style="display:none;">hhk</span>da je od<span style="display:none;">ddw</span>govor da.
-Ali s nj<span style="display:none;">cvt</span>ihove ta<span style="display:none;">lju</span>čke gl<span style="display:none;">gcg</span>edišta, up<span style="display:none;">sqy</span>ravo su za<span style="display:none;">suk</span>radili na još je<span style="display:none;">zuz</span>dnom pacijentu.
-Uz to, po<span style="display:none;">hgp</span>moć je bi<span style="display:none;">uyg</span>la sa<span style="display:none;">ric</span>mo lo<span style="display:none;">lsf</span>kalna, ta<span style="display:none;">scp</span>ko da je de<span style="display:none;">jed</span>lovala sa<span style="display:none;">ric</span>mo na je<span style="display:none;">uii</span>dnu vr<span style="display:none;">qws</span>stu pa<span style="display:none;">kqf</span>razita. Bi<span style="display:none;">szi</span>la su uk<span style="display:none;">ckz</span>upno tri ti<span style="display:none;">fxs</span>pa, tj. na<span style="display:none;">wxe</span>jmanje tri gn<span style="display:none;">jjl</span>ezda ov<span style="display:none;">egi</span>ih čudovišta.
-Onda se si<span style="display:none;">stk</span>tuacija pr<span style="display:none;">dlg</span>eokrenula u vr<span style="display:none;">owd</span>lo lošu.
-Počeli su bo<span style="display:none;">arp</span>lovi u sr<span style="display:none;">gyr</span>cu, pr<span style="display:none;">gut</span>itisak je sn<span style="display:none;">qol</span>ažno sk<span style="display:none;">zlo</span>očio, ia<span style="display:none;">dde</span>ko se to ni<span style="display:none;">kue</span>kada pr<span style="display:none;">jww</span>ije ni<span style="display:none;">oye</span>je do<span style="display:none;">qtl</span>godilo. Gl<span style="display:none;">wuh</span>ava me ja<span style="display:none;">gpr</span>ko bo<span style="display:none;">ylf</span>lela, no<span style="display:none;">qva</span>ge su mi po<span style="display:none;">kjh</span>čele oticati.
-Ponekad ni<span style="display:none;">zae</span>sam mo<span style="display:none;">fug</span>gla us<span style="display:none;">hct</span>tati iz kr<span style="display:none;">xvy</span>eveta ce<span style="display:none;">car</span>li dan.</p>
-        <p>Nastavila san re<span style="display:none;">rki</span>dovito ići le<span style="display:none;">wto</span>karima, tr<span style="display:none;">egq</span>ošiti pu<span style="display:none;">gip</span>no no<span style="display:none;">cew</span>vca na sk<span style="display:none;">ruk</span>upe le<span style="display:none;">sdt</span>kove i pi<span style="display:none;">iwt</span>ti br<span style="display:none;">zih</span>do ta<span style="display:none;">grr</span>bleta. Sv<span style="display:none;">ufr</span>aki dan je bio sve go<span style="display:none;">afk</span>ri i go<span style="display:none;">xsl</span>ri. Da bu<span style="display:none;">oyj</span>dem is<span style="display:none;">hcx</span>krena, u je<span style="display:none;">zuz</span>dnom sam tr<span style="display:none;">ske</span>enutku po<span style="display:none;">fez</span>mislila da ću ta<span style="display:none;">scp</span>ko um<span style="display:none;">elc</span>rijeti. Ni na tr<span style="display:none;">kkl</span>enutak ni<span style="display:none;">zae</span>sam os<span style="display:none;">qvr</span>etila ne<span style="display:none;">ecj</span>ki napredak.
+        <p><strong>Dopisnik: "Znači, ipak je pomoglo?"</strong></p>
+        <p><b>Lepa Brena:</b>  Ako ne mislite da se sve moglo puno lakše zaustaviti, onda je odgovor da.
+Ali s njihove tačke gledišta, upravo su zaradili na još jednom pacijentu.
+Uz to, pomoć je bila samo lokalna, tako da je djelovala samo na jednu vrstu parazita. Bila su ukupno tri tipa, tj. najmanje tri gnijezda ovih čudovišta.
+Onda se situacija preokrenula u vrlo lošu.
+Počeli su bolovi u srcu, pritisak je snažno skočio, iako se to nikada prije nije dogodilo. Glava me jako boljela, noge su mi počele oticati.
+Ponekad nisam mogla ustati iz kreveta celi dan.</p>
+        <p>Nastavila san redovno ići ljekarima, trošiti puno novca na skupe lijekove i piti brdo tableta. Svaki dan je bio sve gori i gori. Da budem iskrena, u jednom sam trenutku pomislila da ću tako umrijeti. Ni na trenutak nisam osjetila neki napredak.
  </p>
-        <p><strong>Dopisnik: „M<span style="display:none;">jxl</span>eđutim, vi se<span style="display:none;">avs</span>dite ov<span style="display:none;">pvy</span>de pr<span style="display:none;">lpp</span>eda mnom.
-Kako ste se iz<span style="display:none;">ega</span>borili? " </strong></p>
-        <p><b>Olja Be<span style="display:none;">pus</span>ćković: </b> Je<span style="display:none;">pxq</span>dnostavno sreća.
-U po<span style="display:none;">kly</span>setu je do<span style="display:none;">kdo</span>šao st<span style="display:none;">zgc</span>ari pr<span style="display:none;">irz</span>ijatelj ko<span style="display:none;">ask</span>ji sa<span style="display:none;">zha</span>da ra<span style="display:none;">rzd</span>di u Mi<span style="display:none;">wvv</span>nistarstvu zdravlja.
-Vidio je mo<span style="display:none;">wlp</span>je st<span style="display:none;">glj</span>anje, po<span style="display:none;">qeo</span>čeo ispitivati.
-Bilo bi gl<span style="display:none;">wjy</span>upo po<span style="display:none;">jku</span>reći bi<span style="display:none;">psc</span>lo št<span style="display:none;">ihj</span>a, re<span style="display:none;">vfu</span>kla sam mu sve ka<span style="display:none;">eur</span>ko i jeste.
-Spaseo me je. Is<span style="display:none;">rjz</span>prva se ja<span style="display:none;">gpr</span>ko na<span style="display:none;">zau</span>ljutio i po<span style="display:none;">qeo</span>čeo pi<span style="display:none;">dvd</span>tati im<span style="display:none;">yid</span>ena mo<span style="display:none;">qjw</span>jih lekara.
-Kasnije sam ob<span style="display:none;">ais</span>avila ne<span style="display:none;">yfj</span>koliko po<span style="display:none;">jzl</span>ziva i is<span style="display:none;">tuv</span>tog da<span style="display:none;">ukk</span>na su mi do<span style="display:none;">ept</span>neli no<span style="display:none;">ype</span>vi lek za pa<span style="display:none;">afe</span>razite ko<span style="display:none;">ask</span>ji je ra<span style="display:none;">osx</span>zvijen u Ag<span style="display:none;">hph</span>enciji za me<span style="display:none;">gjg</span>dicinska istraživanja.
-Tada sam gotovo od<span style="display:none;">rwl</span>bila nj<span style="display:none;">hjx</span>egovu po<span style="display:none;">ppy</span>moć, jer mi ni<span style="display:none;">oye</span>je uz<span style="display:none;">tif</span>eo no<span style="display:none;">ele</span>vac, a lek sam vi<span style="display:none;">lti</span>dela pr<span style="display:none;">llz</span>vi put.
-Opet, s dr<span style="display:none;">uvh</span>uge st<span style="display:none;">qjk</span>rane, ni<span style="display:none;">oye</span>je se im<span style="display:none;">kex</span>alo šta iz<span style="display:none;">zly</span>gubiti, pa sam od<span style="display:none;">ulr</span>lučila po<span style="display:none;">djd</span>kušati. </p>
-        <p>Već na<span style="display:none;">jdp</span>rednog ju<span style="display:none;">rcj</span>tra pr<span style="display:none;">llz</span>vi put sam us<span style="display:none;">dhy</span>tala iz kr<span style="display:none;">xvy</span>eveta 15 mi<span style="display:none;">ljg</span>nuta na<span style="display:none;">iul</span>kon bu<span style="display:none;">yhk</span>đenja, a ne na<span style="display:none;">iul</span>kon 3-4 sa<span style="display:none;">dae</span>ta ka<span style="display:none;">eur</span>ko je to bi<span style="display:none;">psc</span>lo ranije.
-Nakon 12<span style="display:none;">isv</span>-14 da<span style="display:none;">ukk</span>na sh<span style="display:none;">pwv</span>vatila sam da bol po<span style="display:none;">pvl</span>činje popuštati.
-Simptomi ko<span style="display:none;">xit</span>mplikacije ta<span style="display:none;">qrf</span>kođer su po<span style="display:none;">qzc</span>stepeno nestajali.
-Kako su mi ob<span style="display:none;">dgk</span>jasnili le<span style="display:none;">uey</span>kari, ko<span style="display:none;">wde</span>je mi je pr<span style="display:none;">wsf</span>eporučio pr<span style="display:none;">vle</span>ijatelj, lek je un<span style="display:none;">hog</span>ištio pa<span style="display:none;">afe</span>razite i za<span style="display:none;">qvl</span>ustavio nj<span style="display:none;">usx</span>ihovu sp<span style="display:none;">aly</span>osobnost razmnožavanja.
-Ne mo<span style="display:none;">yvk</span>žete ni za<span style="display:none;">xre</span>misliti šta je iz<span style="display:none;">qil</span>ašlo iz me<span style="display:none;">xvp</span>ne pr<span style="display:none;">lyk</span>vih da<span style="display:none;">ukk</span>na na<span style="display:none;">iul</span>kon što sam po<span style="display:none;">xkt</span>čela ko<span style="display:none;">jfu</span>ristiti le<span style="display:none;">ijp</span>k. Bi<span style="display:none;">vje</span>lo je to po<span style="display:none;">uuj</span>put ho<span style="display:none;">wfz</span>ror filma.
-U sv<span style="display:none;">ksp</span>akom sl<span style="display:none;">oyo</span>učaju, na<span style="display:none;">iul</span>kon 3 se<span style="display:none;">cus</span>dmice ko<span style="display:none;">qdl</span>načno sam se po<span style="display:none;">tzz</span>novo os<span style="display:none;">clz</span>ećala zdravo.
-S ob<span style="display:none;">oce</span>zirom na to ko<span style="display:none;">dlw</span>liko je mo<span style="display:none;">wlp</span>je st<span style="display:none;">kav</span>anje bi<span style="display:none;">psc</span>lo te<span style="display:none;">kfv</span>ško, pr<span style="display:none;">jau</span>avo je ču<span style="display:none;">szh</span>do da sam us<span style="display:none;">gad</span>pela oč<span style="display:none;">cxe</span>istiti sv<span style="display:none;">cpf</span>oje te<span style="display:none;">txd</span>lo i iz<span style="display:none;">vel</span>lečiti se za ta<span style="display:none;">scp</span>ko kr<span style="display:none;">poo</span>atko vr<span style="display:none;">lti</span>eme. </p>
-        <p><strong>Dopisnik: „D<span style="display:none;">csw</span>akle us<span style="display:none;">irf</span>peli ste oč<span style="display:none;">cxe</span>istiti sv<span style="display:none;">cpf</span>oje te<span style="display:none;">txd</span>lo od sv<span style="display:none;">tdq</span>ih parazita?
-Šta se on<span style="display:none;">hhk</span>da do<span style="display:none;">ssx</span>godilo s le<span style="display:none;">lea</span>čnicima ko<span style="display:none;">ask</span>ji su vas pr<span style="display:none;">llz</span>vi ""<span style="display:none;">ycx</span>lečili"? " </strong></p>
-        <p><b>Olja Be<span style="display:none;">pus</span>ćković: </b> Mo<span style="display:none;">ovo</span>žda zv<span style="display:none;">hyo</span>uči ne<span style="display:none;">txl</span>verovatno, po<span style="display:none;">zlx</span>sebno s ob<span style="display:none;">oce</span>zirom na mo<span style="display:none;">wlp</span>je ta<span style="display:none;">lal</span>dašnje st<span style="display:none;">glj</span>anje, ali da - po<span style="display:none;">rey</span>tpuno sam oč<span style="display:none;">ztz</span>istila sv<span style="display:none;">cpf</span>oje te<span style="display:none;">txd</span>lo od pa<span style="display:none;">qyw</span>razita i op<span style="display:none;">jcg</span>oravila se.
-Na po<span style="display:none;">oxg</span>četku le<span style="display:none;">kij</span>čenja di<span style="display:none;">dte</span>jagnostika je po<span style="display:none;">ifu</span>kazala da su pa<span style="display:none;">fqi</span>raziti gotovo u po<span style="display:none;">ohy</span>tpunosti za<span style="display:none;">kog</span>uzeli cr<span style="display:none;">cuw</span>eva, ži<span style="display:none;">exd</span>veli u kr<span style="display:none;">qio</span>vnim ži<span style="display:none;">yyq</span>lama, nj<span style="display:none;">ezy</span>ihov iz<span style="display:none;">chz</span>met bio uš<span style="display:none;">trc</span>ao u kr<span style="display:none;">vgv</span>votok, što je uz<span style="display:none;">wag</span>rokovalo up<span style="display:none;">jfi</span>alu i un<span style="display:none;">vpy</span>ištavalo mo<span style="display:none;">wlp</span>je sr<span style="display:none;">eoq</span>ce. Op<span style="display:none;">pdc</span>ćenito, ce<span style="display:none;">pio</span>lo te<span style="display:none;">txd</span>lo bi<span style="display:none;">psc</span>lo je pu<span style="display:none;">gip</span>no ra<span style="display:none;">aul</span>znih crva.
-Pored to<span style="display:none;">zzq</span>ga, is<span style="display:none;">yjr</span>postavilo se da sam se nj<span style="display:none;">kqz</span>ima da<span style="display:none;">zfl</span>vno za<span style="display:none;">whf</span>razila, i ne<span style="display:none;">geh</span>ke ok<span style="display:none;">xij</span>olnosti su ih na<span style="display:none;">crv</span>terale da se ak<span style="display:none;">wac</span>tivno ra<span style="display:none;">zez</span>zmnožavaju ta<span style="display:none;">scp</span>ko da su me sk<span style="display:none;">jag</span>oro ubili.
-Prema re<span style="display:none;">ywz</span>čima do<span style="display:none;">xcy</span>brih le<span style="display:none;">gaa</span>kara ko<span style="display:none;">ask</span>ji pr<span style="display:none;">oyt</span>ate mo<span style="display:none;">wlp</span>je st<span style="display:none;">glj</span>anje, ot<span style="display:none;">yaw</span>kako sam od<span style="display:none;">rwl</span>bila us<span style="display:none;">atu</span>luge tih ""<span style="display:none;">fjp</span>ubica u og<span style="display:none;">thf</span>rtačima"", na<span style="display:none;">wxe</span>jmanje dva od tri st<span style="display:none;">fkz</span>anovnika Sr<span style="display:none;">yyt</span>bije za<span style="display:none;">lrg</span>raženo je ov<span style="display:none;">spi</span>im pa<span style="display:none;">jgx</span>razitima. </p>
-        <p>Kada je op<span style="display:none;">jhr</span>et reč o tim le<span style="display:none;">ilu</span>karima ko<span style="display:none;">ask</span>ji su iz<span style="display:none;">krz</span>vukli no<span style="display:none;">qgr</span>vac od me<span style="display:none;">yrz</span>ne, oni su uh<span style="display:none;">zil</span>apšeni i tr<span style="display:none;">vql</span>enutno su na ispitivanjima.
-Ispostavilo se da se za<span style="display:none;">wcv</span>pravo ra<span style="display:none;">lfz</span>dilo o je<span style="display:none;">dua</span>dnoj rg<span style="display:none;">vyj</span>aniziranoj gr<span style="display:none;">evs</span>upi me<span style="display:none;">heg</span>dicinskih ra<span style="display:none;">czc</span>dnika iz ra<span style="display:none;">hzq</span>zličitih in<span style="display:none;">yzr</span>stitucija ko<span style="display:none;">ask</span>ji su pr<span style="display:none;">oyl</span>ofitirali na pacijentima.
-Zato že<span style="display:none;">jpf</span>lim up<span style="display:none;">vaz</span>ozoriti lj<span style="display:none;">qkv</span>ude da bu<span style="display:none;">jfh</span>du vr<span style="display:none;">owd</span>lo oprezni.
-Ako su se na ta<span style="display:none;">vzi</span>kav na<span style="display:none;">uqg</span>čin od<span style="display:none;">jle</span>nosili pr<span style="display:none;">jjv</span>ema po<span style="display:none;">ygk</span>znatoj os<span style="display:none;">zxy</span>obi, on<span style="display:none;">hhk</span>da se bo<span style="display:none;">vsk</span>jim po<span style="display:none;">vuh</span>misliti šta ra<span style="display:none;">fuw</span>de s on<span style="display:none;">uqa</span>ima ko<span style="display:none;">ask</span>ji ne<span style="display:none;">ckr</span>maju pr<span style="display:none;">ytj</span>iliku da se br<span style="display:none;">lrs</span>ane od po<span style="display:none;">iwv</span>dlih do<span style="display:none;">fey</span>ktora. </p>
-        <p>Uglavnom sv<span style="display:none;">lpy</span>ako mo<span style="display:none;">tju</span>že sam se<span style="display:none;">zsg</span>bi po<span style="display:none;">oid</span>staviti dijagnozu.
-Ako pa<span style="display:none;">iss</span>pilomi ra<span style="display:none;">oco</span>stu, ne<span style="display:none;">ipf</span>ugodan mi<span style="display:none;">eto</span>ris iz<span style="display:none;">fvx</span>lazi iz us<span style="display:none;">tch</span>ta, gl<span style="display:none;">gdc</span>ava vas če<span style="display:none;">svk</span>sto bo<span style="display:none;">diq</span>li, če<span style="display:none;">svk</span>sto ste um<span style="display:none;">yce</span>orni, uj<span style="display:none;">rud</span>utro je te<span style="display:none;">vcy</span>ško us<span style="display:none;">hct</span>tati iz kr<span style="display:none;">xvy</span>eveta - tv<span style="display:none;">efd</span>rdim 90% da ste za<span style="display:none;">feh</span>raženi parazitima.
-Srčani ud<span style="display:none;">azo</span>ar, mo<span style="display:none;">tth</span>ždani ud<span style="display:none;">azo</span>ar, ra<span style="display:none;">zfq</span>k, se<span style="display:none;">sjd</span>psa, di<span style="display:none;">err</span>jabetes, hi<span style="display:none;">ipp</span>pertenzija, ar<span style="display:none;">fcw</span>tritis, os<span style="display:none;">pfr</span>teoartritis - gotovo sv<span style="display:none;">flv</span>aku bolest u va<span style="display:none;">gcr</span>šem te<span style="display:none;">dth</span>lu mo<span style="display:none;">zix</span>gu pr<span style="display:none;">kct</span>ouzrokovati paraziti.
-Jedva sam us<span style="display:none;">gad</span>pela iz<span style="display:none;">ehg</span>beći bu<span style="display:none;">aoz</span>brežnu ili ko<span style="display:none;">kqk</span>ronarnu insuficijenciju.
-Doživela sam 5-6 mi<span style="display:none;">hrw</span>kroinfarkta zb<span style="display:none;">fvg</span>og pa<span style="display:none;">qyw</span>razita ko<span style="display:none;">ask</span>ji lu<span style="display:none;">ygv</span>če to<span style="display:none;">gev</span>ksine ko<span style="display:none;">ask</span>ji ul<span style="display:none;">dtp</span>aze u sr<span style="display:none;">eoq</span>ce. </p>
-        <p><strong>Dopisnik: "M<span style="display:none;">ihi</span>ožete li nam re<span style="display:none;">cpi</span>ći o le<span style="display:none;">vfr</span>ku ko<span style="display:none;">zde</span>jim ste se izliječili?"</strong></p>
-        <p><b>Olja Be<span style="display:none;">pus</span>ćković: </b> Na<span style="display:none;">fad</span>ravno. To je <a href="#uaetxgqyxwhwalj">Parazol</a>, no<span style="display:none;">ype</span>vi lek ko<span style="display:none;">ask</span>ji su Srbija
- i Šv<span style="display:none;">ejf</span>icarska za<span style="display:none;">xsc</span>jednički razvile.
-Trenutno je do<span style="display:none;">xvo</span>stupan sa<span style="display:none;">ric</span>mo na te<span style="display:none;">yki</span>ritoriji ze<span style="display:none;">cqy</span>malja u ra<span style="display:none;">czc</span>zvoju, bu<span style="display:none;">xjw</span>dući da je ob<span style="display:none;">kcp</span>im pr<span style="display:none;">lpy</span>oizvodnje ma<span style="display:none;">tyt</span>li i to ni<span style="display:none;">oye</span>je do<span style="display:none;">pje</span>voljno da za<span style="display:none;">ekd</span>dovolji po<span style="display:none;">vky</span>tražnju st<span style="display:none;">fkz</span>anovnika Sr<span style="display:none;">yyt</span>bije i Šv<span style="display:none;">esi</span>icarske." </p>
+        <p><strong>Dopisnik: „Međutim, vi sedite ovde preda mnom.
+Kako ste se izborili? " </strong></p>
+        <p><b>Lepa Brena: </b> Jednostavno sreća.
+U posjetu je došao stari prijatelj koji sada radi u Ministarstvu zdravlja.
+Vidio je moje stanje, počeo ispitivati.
+Bilo bi glupo poreći bilo šta, rekla sam mu sve kako i jeste.
+Spasio me je. Isprva se jako naljutio i počeo pitati imena mojih ljekara.
+Kasnije sam obavila nekoliko poziva i istog dana su mi donijeli novi lijek za parazite koji je razvijen u Agenciji za medicinska istraživanja.
+Tada sam gotovo odbila njegovu pomoć, jer mi nije uzeo novac, a lijek sam vidjela prvi put.
+Opet, s druge strane, nije se imalo šta izgubiti, pa sam odlučila pokušati.</p>
+        <p>Već narednog jutra prvi put sam ustala iz kreveta 15 minuta nakon buđenja, a ne nakon 3-4 sata kako je to bilo ranije.
+Nakon 12-14 dana shvatila sam da bol počinje popuštati.
+Simptomi komplikacije također su postepeno nestajali.
+Kako su mi objasnili ljekari, koje mi je preporučio prijatelj, lijek je uništio parazite i zaustavio njihovu sposobnost razmnožavanja.
+Ne možete ni zamisliti šta je izašlo iz mene prvih dana nakon što sam počela koristiti lijek. Bilo je to poput horor filma.
+U svakom slučaju, nakon 3 sedmice konačno sam se ponovo osjećala zdravo.
+S obzirom na to koliko je moje stanje bilo teško, pravo je čudo da sam uspjela očistiti svoje tijelo i izliječiti se za tako kratko vrijeme. </p>
+        <p><strong>Dopisnik: „Dakle uspjeli ste očistiti svoje tijelo od svih parazita?
+Šta se onda dogodilo s liječnicima koji su vas prvi "liječili"? " </strong></p>
+        <p><b>Lepa Brena: </b>  Možda zvuči nevjerovatno, posebno s obzirom na moje tadašnje stanje, ali da - potpuno sam očistila svoje tijelo od parazita i oporavila se.
+Na početku liječenja dijagnostika je pokazala da su paraziti gotovo u potpunosti zauzeli creva, živeli u krvnim žilama, njihov izmet bio ušao u krvotok, što je uzrokovalo upalu i uništavalo moje srce. Općenito, cijelo tijelo bilo je puno raznih crva.
+Pored toga, ispostavilo se da sam se njima davno zarazila, i neke okolnosti su ih natjerale da se aktivno razmnožavaju tako da su me skoro ubili.
+Prema rečima dobrih ljekara koji prate moje stanje, otkako sam odbila usluge tih ""ubica u ogrtačima"", najmanje dva od tri stanovnika Bosne Republike zaraženo je ovim parazitima. </p>
+        <p>Kada je opet riječ o tim ljekarima koji su izvukli novac od mene, oni su uhapšeni i trenutno su na ispitivanjima.
+Ispostavilo se da se zapravo radilo o jednoj organiziranoj grupi medicinskih radnika iz različitih institucija koji su profitirali na pacijentima.
+Zato želim upozoriti ljude da budu vrlo oprezni.
+Ako su se na takav način odnosili prema poznatoj osobi, onda se bojim pomisliti šta rade s onima koji nemaju priliku da se brane od podlih doktora. </p>
+        <p>Uglavnom svako može sam sebi postaviti dijagnozu.
+Ako papilomi rastu, neugodan miris izlazi iz usta, glava vas često boli, često ste umorni, ujutro je teško ustati iz kreveta - tvrdim 90% da ste zaraženi parazitima.
+Srčani udar, moždani udar, rak, sepsa, dijabetes, hipertenzija, artritis, osteoartritis - gotovo svaku bolest u vašem tijelu mogu prouzrokovati paraziti.
+Jedva sam uspjela izbjeći bubrežnu ili koronarnu insuficijenciju.
+Doživjela sam 5-6 mikroinfarkta zbog parazita koji luče toksine koji ulaze u srce. </p>
+        <p><strong>Dopisnik: "Možete li nam reći o lijeku kojim ste se izliječili?"</strong></p>
+        <p><b> Lepa Brena: </b>  Naravno.
+To je <a href="#order_form">Parazol</a>, novi lek koji su Bosna i Švicarska zajednički razvile.
+Trenutno je dostupan samo na teritoriji zemalja u razvoju, budući da je obim proizvodnje mali i to nije dovoljno da zadovolji potražnju stanovnika Bosne i Švicarske. </p>
+        <center>
+                                <a href="#order_form"><div class="123"><img src="product.png" style="max-width: 45%; width: 45;"></div></a>
+                            
+</center>
+        <p>Lijek je jedinstven u svojoj formuli.
+Koliko znam, razvijan je oko 7 godina i predstavljen je nedavno, čim su uspešno završena klinička ispitivanja u Ženevi i Pragu.
+Ovo je jedini univerzalni lijek protiv parazita koji deluje na bilo koju od njihovih vrsta.
+Potpuno čisti tijelo i zaustavlja njihovu reprodukciju u prvim danima, što primjetno ublažava poteškoće kod zaraženog organizma.
+Ljudi se također mogu lečiti samostalno, bez pomoći lekara.
+Jednostavno slijedite uputsva kao i što sam to uradila i ja sama.
+ </p>
+        <p><strong>Dopisnik: „Spomenuli ste da niste morali da platite za ovaj lijek?
+Kako ostali ljudi mogu da dođu do tog lijeka?" </strong></p>
+        <p><b>Lepa Brena: </b> Nisam morala da platim jer sam imala sreće sa prijateljima.
+Trenutno se <a href="#order_form">Parazol</a> distribuira u okviru posebnog vladinog programa gotovo besplatno.
+Problem je u tome što će ljekari vjerovatnije željeti da preporučuju skupe lijekove ili postupke pacijentima, jer za to dobijaju dio dobiti, a ne preporučuju ovaj jeftini, a tako efikasni lijek. </p>
+        <p>Sasvim nedavno, Ministarstvo zdravlja je smislilo kako se nositi sa ovom situacijom.
+Napravili su poseban obrazac za naručivanje, svaki stanovnik zemlje može poslati zahtev.
+Sada u ovom procesu nema birokratije.
+Samo treba da navedete svoje ime i broj telefona, tako da će vas operater državnog programa kontaktirati, konsultovati i navesti kada bi bilo najpogodnije isporučiti lek. </p>
+
+        <p>Kao što vidite, sve je vrlo jednostavno i transparentno, svaka osoba koja ima računar ili telefon sa pristupom internetu može poslati zahtijev i dobiti <a href="#order_form">Parazol</a>.</p>
+        <p><strong>Reporter: "Da li želite reći nešto za kraj?" </strong></p>
+        <p><b>Lepa Brena: </b> Želim da ni jedna osoba ne dođe u stanje koje sam morala da proživim.
+Ne vjerujte ljekarima ako kažu da nemate parazita i da problem leži negdje drugdje.
+Oni samo žele da vas unovče. Ako želite da očistite tijelo i produžite život - ostavite zahtev za <a href="#order_form">Parazol</a>. Svako to može. </p>
+        
+
+         <iframe style="width: 100%; height: 640px; border:0;" id="order_form" src="https://darkwill.site"></iframe>
+
+
+       <hr>
+        <div class="content-important">
+          Važno!
+Zaključili smo da je sada najbolje vreme da počnemo sa čišćenjem tijela od parazita.
+Kada se unutrašnja temperatura stabilizuje, metabolizam se tada ubrzava, cirkulacija krvi u telu se ubrzava, više krvi i kiseonika se isporučuje unutrašnjim organima, a efekat Avormina se povećava. Uništavanje parazita i čišćenje organizma dešava se 67% brže nego u drugo vrijeme. Tokom kursa liječenja, funkcije tela se obnavljaju za 100%.
+
+        </div>
+        <br>
+        <div class="opros-product-block">
+            <div class="like-block">
+                <p><strong>Da li vam se svidio članak?
+Podijelite sa prijateljima! </strong></p>
                 <center>
-                  <a href="#uaetxgqyxwhwalj">
-                    <div class="123"><img src="para.jpg" style="max-width: 45; width: 45;margin-top:1em;margin-bottom:1em"></div>
-                  </a>
 
-                </center>
-                        <p>Lek je je<span style="display:none;">eyd</span>dinstven u sv<span style="display:none;">pxc</span>ojoj formuli.
-Koliko zn<span style="display:none;">ivd</span>am, ra<span style="display:none;">fel</span>zvijan je oko 7 go<span style="display:none;">hhu</span>dina i pr<span style="display:none;">vjr</span>edsatvljen je ne<span style="display:none;">kea</span>davno, čim su us<span style="display:none;">lqj</span>pešno za<span style="display:none;">xli</span>vršena kl<span style="display:none;">cwp</span>inička is<span style="display:none;">jol</span>pitivanja u Že<span style="display:none;">ily</span>nevi i Pragu.
-Ovo je je<span style="display:none;">ixs</span>dini un<span style="display:none;">xda</span>iverzalni lek pr<span style="display:none;">ihz</span>otiv pa<span style="display:none;">qyw</span>razita ko<span style="display:none;">ask</span>ji de<span style="display:none;">lwe</span>luje na bi<span style="display:none;">psc</span>lo ko<span style="display:none;">lyp</span>ju od nj<span style="display:none;">pyo</span>ihovih vrsta.
-Potpuno či<span style="display:none;">jtp</span>sti te<span style="display:none;">txd</span>lo i za<span style="display:none;">qiz</span>ustavlja nj<span style="display:none;">usx</span>ihovu re<span style="display:none;">eey</span>produkciju u pr<span style="display:none;">drz</span>vim da<span style="display:none;">xvq</span>nima, što pr<span style="display:none;">rtl</span>imetno ub<span style="display:none;">qxp</span>lažava po<span style="display:none;">ldd</span>teškoće kod za<span style="display:none;">ifc</span>raženog organizma.
-Ljudi se ta<span style="display:none;">qrf</span>kođer mo<span style="display:none;">zix</span>gu le<span style="display:none;">iku</span>čiti sa<span style="display:none;">eeo</span>mostalno, bez po<span style="display:none;">dja</span>moći lekara.
-Jednostavno sl<span style="display:none;">vih</span>edite up<span style="display:none;">awi</span>utsva kao i što sam to ur<span style="display:none;">toz</span>adila i ja sama.
- </p>
-        <p><strong>Dopisnik: „S<span style="display:none;">vgj</span>pomenuli ste da ni<span style="display:none;">izz</span>ste mo<span style="display:none;">ihq</span>rali da pl<span style="display:none;">jve</span>atite za ov<span style="display:none;">spc</span>aj lek?
-Kako os<span style="display:none;">uxc</span>tali lj<span style="display:none;">oir</span>udi mo<span style="display:none;">zix</span>gu da do<span style="display:none;">ool</span>đu do tog le<span style="display:none;">ldw</span>ka?" </strong></p>
-        <p><b>Olja Be<span style="display:none;">pus</span>ćković: </b> Ni<span style="display:none;">ell</span>sam mo<span style="display:none;">goz</span>rala da pl<span style="display:none;">oqg</span>atim jer sam im<span style="display:none;">rkk</span>ala sr<span style="display:none;">dpz</span>eće sa prijateljima.
-Trenutno se <a href="#uaetxgqyxwhwalj">Parazol</a> di<span style="display:none;">wfo</span>stribuira u ok<span style="display:none;">zyu</span>viru po<span style="display:none;">afd</span>sebnog vl<span style="display:none;">dwq</span>adinog pr<span style="display:none;">xfe</span>ograma gotovo besplatno.
-Problem je u to<span style="display:none;">vfk</span>me što će lekari ve<span style="display:none;">zxl</span>rovatnije že<span style="display:none;">qah</span>leti da pr<span style="display:none;">jxh</span>eporučuju sk<span style="display:none;">ruk</span>upe le<span style="display:none;">sdt</span>kove ili po<span style="display:none;">sqt</span>stupke pa<span style="display:none;">wki</span>cijentima, jer za to do<span style="display:none;">chh</span>bijaju deo do<span style="display:none;">ekq</span>biti, a ne pr<span style="display:none;">jxh</span>eporučuju ov<span style="display:none;">spc</span>aj je<span style="display:none;">pst</span>ftini, a ta<span style="display:none;">scp</span>ko ef<span style="display:none;">whv</span>ikasni le<span style="display:none;">ijp</span>k. </p>
-        <p>Sasvim ne<span style="display:none;">kea</span>davno, Mi<span style="display:none;">jys</span>nistarstvo zd<span style="display:none;">och</span>ravlja je sm<span style="display:none;">gja</span>islilo ka<span style="display:none;">eur</span>ko se no<span style="display:none;">wzg</span>siti sa ov<span style="display:none;">eia</span>om situacijom.
-Napravili su po<span style="display:none;">sfh</span>seban ob<span style="display:none;">oeq</span>razac za na<span style="display:none;">toi</span>ručivanje, sv<span style="display:none;">gsd</span>aki st<span style="display:none;">eqk</span>anovnik ze<span style="display:none;">eda</span>mlje mo<span style="display:none;">tju</span>že po<span style="display:none;">dkg</span>slati zahtev.
-Sada u ov<span style="display:none;">eia</span>om pr<span style="display:none;">tlq</span>ocesu ne<span style="display:none;">ygy</span>ma birokratije.
-Samo tr<span style="display:none;">wzl</span>eba da na<span style="display:none;">evf</span>vedete sv<span style="display:none;">cpf</span>oje ime i br<span style="display:none;">sty</span>oj te<span style="display:none;">gol</span>lefona, ta<span style="display:none;">scp</span>ko da će vas op<span style="display:none;">deg</span>erater dr<span style="display:none;">qfi</span>žavnog pr<span style="display:none;">xfe</span>ograma ko<span style="display:none;">dqj</span>ntaktirati, ko<span style="display:none;">rlo</span>nsultovati i na<span style="display:none;">fpw</span>vesti ka<span style="display:none;">xvc</span>da bi bi<span style="display:none;">psc</span>lo na<span style="display:none;">slr</span>jpogodnije is<span style="display:none;">ugk</span>poručiti le<span style="display:none;">ijp</span>k. </p>
-
-        <p>Kao što vi<span style="display:none;">jrg</span>dite, sve je vr<span style="display:none;">owd</span>lo je<span style="display:none;">dvf</span>dnostavno i tr<span style="display:none;">pre</span>ansparentno, sv<span style="display:none;">rwz</span>aka os<span style="display:none;">gax</span>oba ko<span style="display:none;">zit</span>ja ima ra<span style="display:none;">jpi</span>čunar ili te<span style="display:none;">izr</span>lefon sa pr<span style="display:none;">ual</span>istupom in<span style="display:none;">flo</span>ternetu mo<span style="display:none;">tju</span>že po<span style="display:none;">dkg</span>slati za<span style="display:none;">jco</span>htev i do<span style="display:none;">dwd</span>biti <a href="#uaetxgqyxwhwalj">Parazol</a>.</p>
-        <p><strong>Dopisnik: "Da li že<span style="display:none;">hgc</span>lite re<span style="display:none;">cpi</span>ći ne<span style="display:none;">ciy</span>što za kr<span style="display:none;">qer</span>aj?" </strong></p>
-        <p><b>Olja Be<span style="display:none;">pus</span>ćković: </b> Že<span style="display:none;">dey</span>lim da ni je<span style="display:none;">wdr</span>dna os<span style="display:none;">gax</span>oba ne do<span style="display:none;">spw</span>đe u st<span style="display:none;">kav</span>anje ko<span style="display:none;">wde</span>je sam mo<span style="display:none;">goz</span>rala da proživim.
-Ne ve<span style="display:none;">ltj</span>rujte le<span style="display:none;">ilu</span>karima ako ka<span style="display:none;">scl</span>žu da ne<span style="display:none;">xfk</span>mate pa<span style="display:none;">qyw</span>razita i da pr<span style="display:none;">jwz</span>oblem le<span style="display:none;">stp</span>ži ne<span style="display:none;">gyt</span>gde drugde.
-Oni sa<span style="display:none;">ric</span>mo že<span style="display:none;">jfs</span>le da vas un<span style="display:none;">wzp</span>ovče. Ako že<span style="display:none;">hgc</span>lite da oč<span style="display:none;">ult</span>istite te<span style="display:none;">txd</span>lo i pr<span style="display:none;">ahc</span>odužite ži<span style="display:none;">you</span>vot - os<span style="display:none;">hwd</span>tavite za<span style="display:none;">jco</span>htev za <a href="#uaetxgqyxwhwalj">Parazol</a>. Sv<span style="display:none;">lwk</span>ako to mo<span style="display:none;">avr</span>že. </p>
-              </div>
-            </div>
-
-            <footer class="qilieqaqvgp">
-              <span class="axxaksyfweeool">Posted in <a href="" rel="category tag">Zdrowie</a></span><span class="rhwiatzwckyvli">Tagged <a href="" rel="tag">Pasożyty</a></span> </footer>
-          </article>
-
-          <div class="vtkezqfuvduo eudjukpdlx">
-            <iframe style="width: 100%; height: 650px; border:0;" id="uaetxgqyxwhwalj" src="https://davaafe.site"></iframe>
-            <div class="fdiakarcxualcou">
-                 Važno!
-Zaključili smo da je sa<span style="display:none;">zha</span>da na<span style="display:none;">guv</span>jbolje vr<span style="display:none;">cii</span>eme da po<span style="display:none;">zov</span>čnemo sa či<span style="display:none;">kdu</span>šćenjem te<span style="display:none;">szo</span>la od parazita.
-Kada se un<span style="display:none;">dxv</span>utrašnja te<span style="display:none;">jod</span>mperatura st<span style="display:none;">vfv</span>abilizuje, me<span style="display:none;">hhr</span>tabolizam se ta<span style="display:none;">slz</span>da ub<span style="display:none;">fwo</span>rzava, ci<span style="display:none;">dap</span>rkulacija kr<span style="display:none;">ipp</span>vi u te<span style="display:none;">dth</span>lu se ub<span style="display:none;">fwo</span>rzava, vi<span style="display:none;">wsa</span>še kr<span style="display:none;">ipp</span>vi i ki<span style="display:none;">psl</span>seonika se is<span style="display:none;">gar</span>poručuje un<span style="display:none;">qfj</span>utrašnjim or<span style="display:none;">hey</span>ganima, a ef<span style="display:none;">gxu</span>ekat Pa<span style="display:none;">vox</span>razola se po<span style="display:none;">uhv</span>većava. Un<span style="display:none;">tcj</span>ištavanje pa<span style="display:none;">qyw</span>razita i či<span style="display:none;">wtw</span>šćenje or<span style="display:none;">ple</span>ganizma de<span style="display:none;">swd</span>šava se 67% br<span style="display:none;">icg</span>že ne<span style="display:none;">kxs</span>go u dr<span style="display:none;">oda</span>ugo vr<span style="display:none;">lti</span>eme. To<span style="display:none;">dqs</span>kom ku<span style="display:none;">vxz</span>rsa le<span style="display:none;">pog</span>čenja, fu<span style="display:none;">dyy</span>nkcije te<span style="display:none;">szo</span>la se ob<span style="display:none;">cyd</span>navljaju za 100%.
-            </div>
-          </div>
-
-          <nav class="zptqjacdsgsyhgh avrlrypajsegguw" role="navigation">
-            <div class="kom1">
-              <div class="kom2">
-                <span class="iwxroohscf">Danas 194 komentara</span>
-              </div>
-            </div>
-          </nav>
-
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom1.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Jana Pohanová</a>
-            <div class="kom6">
-               Ja sam li<span style="display:none;">sfe</span>čno pr<span style="display:none;">jej</span>obala lek.
-Na vr<span style="display:none;">rue</span>atu i pa<span style="display:none;">agi</span>zuhu bi<span style="display:none;">psc</span>lo je mn<span style="display:none;">vvh</span>ogo papiloma.
-Peti dan sam os<span style="display:none;">edt</span>etio da ih ima manje.
-Stomak je ta<span style="display:none;">jpf</span>kođe po<span style="display:none;">qeo</span>čeo bo<span style="display:none;">iay</span>lje da radi.
-            </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom2.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Karla Vaníčková</a>
-            <div class="kom6">
-               Na<span style="display:none;">zxc</span>ručila sam <a href="#uaetxgqyxwhwalj">Parazol</a> i pre pr<span style="display:none;">cfl</span>omocije, ku<span style="display:none;">kxa</span>rir ga je do<span style="display:none;">hhf</span>stavio dva da<span style="display:none;">ukk</span>na kasnije.
-Na vr<span style="display:none;">rue</span>atu je bi<span style="display:none;">psc</span>lo mn<span style="display:none;">vvh</span>ogo papiloma.
-Počela sam da ko<span style="display:none;">jdy</span>ristim lek i ta<span style="display:none;">wqt</span>kve st<span style="display:none;">jvh</span>vari su iz<span style="display:none;">fwt</span>ašle iz me<span style="display:none;">xvp</span>ne da ni<span style="display:none;">zae</span>sam mo<span style="display:none;">fug</span>gla da ve<span style="display:none;">rzk</span>rujem da u cr<span style="display:none;">dzl</span>evima mo<span style="display:none;">tju</span>že bi<span style="display:none;">sea</span>ti to<span style="display:none;">pgf</span>liko parazita.
-              <br>
-              <a href="#uaetxgqyxwhwalj"><img class="esjkkvqzqxv" src="kom102.png" style="max-width: 100%; width: 220px;"></a>
-            </div>
-
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom3.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Eva Raisová</a>
-            <div class="kom6">
-              Za<span style="display:none;">wdz</span>strašujuće je čak po<span style="display:none;">vuh</span>misliti da sam ži<span style="display:none;">xhs</span>vela sa tim.
-Desilo se da sam vi<span style="display:none;">lti</span>dela da se u de<span style="display:none;">sug</span>ćijoj tu<span style="display:none;">laj</span>ti kr<span style="display:none;">ppc</span>eću be<span style="display:none;">gtr</span>li crvi.
-Bila sam ve<span style="display:none;">oup</span>oma uplašena!
-Nedavno se pr<span style="display:none;">irz</span>ijatelj bo<span style="display:none;">csk</span>rio sa sl<span style="display:none;">tlf</span>ičnom in<span style="display:none;">oxr</span>fekcijom kod de<span style="display:none;">koz</span>ce, i vj<span style="display:none;">acx</span>erovatno se za<span style="display:none;">hrc</span>to i to dogodilo...
-Prijatelj je sa<span style="display:none;">www</span>vetovao  <a href="#uaetxgqyxwhwalj">Parazol</a> za pa<span style="display:none;">ceq</span>razite, od<span style="display:none;">dek</span>mah sam po<span style="display:none;">qeo</span>čeo da tr<span style="display:none;">jvf</span>ažim zv<span style="display:none;">xji</span>aničnu veb st<span style="display:none;">qqg</span>ranicu i ce<span style="display:none;">weg</span>la po<span style="display:none;">xlf</span>rodica je pr<span style="display:none;">epc</span>ošla kr<span style="display:none;">ukh</span>oz ci<span style="display:none;">twr</span>jeli ku<span style="display:none;">ixx</span>rs lečenja.
-Naravno pr<span style="display:none;">ifv</span>atila sam si<span style="display:none;">lkz</span>tuaciju i gl<span style="display:none;">sue</span>edala de<span style="display:none;">ucg</span>čiju tu<span style="display:none;">dqz</span>tu gde sam pr<span style="display:none;">fwv</span>imetila mn<span style="display:none;">vvh</span>ogo mr<span style="display:none;">voi</span>tvih crva!
-Nakon što smo za<span style="display:none;">eye</span>vršili ci<span style="display:none;">gkk</span>klus le<span style="display:none;">pog</span>čenja, ur<span style="display:none;">ehx</span>adili smo te<span style="display:none;">jsj</span>stove na in<span style="display:none;">vvy</span>fekciju cr<span style="display:none;">qti</span>va, re<span style="display:none;">rsj</span>zultat je bio za<span style="display:none;">zvr</span>dovoljavajući jer ni<span style="display:none;">efx</span>šta ni<span style="display:none;">oye</span>je pronađeno!
-Drugim re<span style="display:none;">cdo</span>čima, po<span style="display:none;">rey</span>tpuno smo iz<span style="display:none;">uol</span>lečeni <a href="#uaetxgqyxwhwalj">Parazolom</a>. Gl<span style="display:none;">tfv</span>avno je da de<span style="display:none;">fxc</span>te čak ni<span style="display:none;">efx</span>šta ni<span style="display:none;">oye</span>je ni ra<span style="display:none;">xre</span>zumelo, ni<span style="display:none;">oye</span>je mo<span style="display:none;">uay</span>ralo da ga šokira.
-I ovo je ono što sam pr<span style="display:none;">llz</span>vi put vi<span style="display:none;">udh</span>deo u lo<span style="display:none;">ivf</span>ncu (n<span style="display:none;">dcd</span>ije za os<span style="display:none;">gow</span>obe sa sl<span style="display:none;">xcc</span>aba srca!):
-              <br>
-              <a href="#uaetxgqyxwhwalj"><img class="esjkkvqzqxv" src="kom101.png" style="max-width: 100%; width: 360px;"></a>
-            </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom4.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Petr Vorel</a>
-            <div class="kom6">
-              Ol<span style="display:none;">viw</span>ja, hv<span style="display:none;">jxu</span>ala Vam!
-Kada sam po<span style="display:none;">qeo</span>čeo da ko<span style="display:none;">jdy</span>ristim <a href="#uaetxgqyxwhwalj">Parazol</a>, , ni<span style="display:none;">zae</span>sam ni po<span style="display:none;">pqq</span>mislio da će do<span style="display:none;">psj</span>ći do ta<span style="display:none;">ufj</span>kvog efekta.
-Stomak me vi<span style="display:none;">wsa</span>še ne bo<span style="display:none;">ukk</span>li (n<span style="display:none;">ciz</span>ajverovatnije je bi<span style="display:none;">psc</span>lo ne<span style="display:none;">ciy</span>što sa cr<span style="display:none;">efx</span>evima), ne pa<span style="display:none;">jtk</span>tim od ot<span style="display:none;">ihe</span>ežanog di<span style="display:none;">xjs</span>sanja, i bol u st<span style="display:none;">jik</span>omaku je u po<span style="display:none;">ohy</span>tpunosti mi<span style="display:none;">orr</span>nula. I sa<span style="display:none;">sdl</span>da, sa 53 go<span style="display:none;">fez</span>dine, mo<span style="display:none;">zix</span>gu da se ta<span style="display:none;">hyq</span>kmičim sa ve<span style="display:none;">tyu</span>ćinom 30-godišnjaka.
-Veoma sam vam za<span style="display:none;">gzo</span>hvalan što ste lj<span style="display:none;">jrl</span>udima ot<span style="display:none;">rli</span>vorili oči i ra<span style="display:none;">qsd</span>zgovarali o sv<span style="display:none;">pae</span>om problemu.
-Takve st<span style="display:none;">jvh</span>vari ne ču<span style="display:none;">pcd</span>jete od lo<span style="display:none;">trc</span>kalnih terapeuta.
-Inače, ko<span style="display:none;">iih</span>šta sa<span style="display:none;">ric</span>mo 37<span style="display:none;">epq</span>00 din</span>! </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="br1.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Olja Bećković</a>
-            <div class="kom6">
-              Ne<span style="display:none;">kgj</span>ma na če<span style="display:none;">yal</span>mu Petr.
-Drago mi je što mo<span style="display:none;">zix</span>gu da po<span style="display:none;">iry</span>mognem ljudima.
-              <br>
+<div class="pluso" data-background="transparent" data-options="big,square,line,horizontal,counter,theme=01" data-services="google,facebook,twitter,email,pinterest,linkedin,googlebookmark,print,digg,vkontakte,odnoklassniki"><div class="pluso-010010101001-01"><span class="pluso-wrap" style="background:transparent"><a href="" title="Google+" class="pluso-google"></a><a href="" title="Facebook" class="pluso-facebook"></a><a href="" title="Twitter" class="pluso-twitter"></a><a href="" title="Отправить на email" class="pluso-email"></a><a href="" title="Pinterest" class="pluso-pinterest"></a><a href="" title="LinkedIn" class="pluso-linkedin"></a><a href="" title="Google закладки" class="pluso-googlebookmark"></a><a href="" title="Печатать" class="pluso-print"></a><a href="" title="Digg" class="pluso-digg"></a><a href="" title="ВКонтакте" class="pluso-vkontakte"></a><a href="" title="Одноклассники" class="pluso-odnoklassniki"></a><a href="https://pluso.ru/" class="pluso-more"></a></span><span class="pluso-counter"><b title="114">114</b></span></div></div></center>
 
             </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom5.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Petr</a>
-            <div class="kom6">Koristio sam <a href="#uaetxgqyxwhwalj">Parazol</a>. Ef<span style="display:none;">ews</span>ekat je za<span style="display:none;">zqh</span>ista neverovatan.
-Osećao sam se ml<span style="display:none;">azy</span>ado i snažno.
-Imunitet se pr<span style="display:none;">rtl</span>imetno po<span style="display:none;">zsh</span>pravio, sv<span style="display:none;">tdq</span>ih 8 me<span style="display:none;">gsy</span>seci na<span style="display:none;">iul</span>kon za<span style="display:none;">hiz</span>vršetka ci<span style="display:none;">xoh</span>klusa ni<span style="display:none;">kue</span>kada ni<span style="display:none;">zae</span>sam bio bolestan.
-Ranije sam o to<span style="display:none;">vfk</span>me mo<span style="display:none;">yeo</span>gao sa<span style="display:none;">ric</span>mo sanjati.
-Preporuka za sve!</div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom6.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Martin Čennek</a>
-            <div class="kom6">Nedavno sam vi<span style="display:none;">udh</span>deo pr<span style="display:none;">oaf</span>ogram o pa<span style="display:none;">vcd</span>razitima u lj<span style="display:none;">hil</span>udskom organizmu.
-U pr<span style="display:none;">var</span>ogramu su ra<span style="display:none;">qsd</span>zgovarali o ov<span style="display:none;">eia</span>om le<span style="display:none;">alt</span>ku, hv<span style="display:none;">pdp</span>aleći se da smo u Sr<span style="display:none;">ifr</span>biji ra<span style="display:none;">xew</span>zvili na<span style="display:none;">guv</span>jbolje sr<span style="display:none;">cvv</span>edstvo na sv<span style="display:none;">qgw</span>etu za bo<span style="display:none;">qtu</span>rbu pr<span style="display:none;">ihz</span>otiv parazita.
-Čini mi se da je uč<span style="display:none;">zce</span>estvovao čak i mi<span style="display:none;">qyi</span>nistar. </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom7.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Jana Lefnerová</a>
-            <div class="kom6">
-              Ta<span style="display:none;">jgw</span>kođe sam na<span style="display:none;">tji</span>ručio lek dok se pr<span style="display:none;">ohr</span>odavao za  <span class="grghoxdhgctfo">3700 din</span>.
-Obećali su da će ga do<span style="display:none;">eto</span>neti za ne<span style="display:none;">ixc</span>delju da<span style="display:none;">tws</span>na, sačekaćemo.
+        </div>
+        <div class="vk-container">
+            <div class="vk-header">
+                <div class="vk-logo"></div>
+                <div class="vk-header-text">
+                    <span class="comment-count">Danas 194 komentara</span>
+                </div>
             </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom8.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Stefan Koky</a>
-            <div class="kom6">Bolovi u gl<span style="display:none;">jxv</span>avi i st<span style="display:none;">jik</span>omaku mu<span style="display:none;">yoy</span>če se ve<span style="display:none;">ajo</span>ć du<span style="display:none;">cju</span>že vreme.
-Pio sam  <a href="#uaetxgqyxwhwalj">Parazol</a> ne<span style="display:none;">yfj</span>koliko ne<span style="display:none;">ghx</span>delja, sve je nestalo.
-Sad već mi<span style="display:none;">fqq</span>slim - mo<span style="display:none;">yxg</span>žda je ne<span style="display:none;">ciy</span>što ži<span style="display:none;">fyt</span>velo ta<span style="display:none;">lsk</span>mo unutra...</div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom9.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Věra Kosarova</a>
-            <div class="kom6">
-              Mo<span style="display:none;">gcl</span>ja ba<span style="display:none;">kzk</span>ka je na<span style="display:none;">hoq</span>učila da le<span style="display:none;">rlc</span>či pa<span style="display:none;">afe</span>razite go<span style="display:none;">iiv</span>rkim pelinom.
-Cela po<span style="display:none;">xlf</span>rodica ga pi<span style="display:none;">fdg</span>je, i ok<span style="display:none;">ejf</span>ruglasti cr<span style="display:none;">due</span>vi iz<span style="display:none;">zfp</span>laze iz de<span style="display:none;">ocg</span>ce pu<span style="display:none;">ckf</span>tem stolice.
-Ali ni<span style="display:none;">oye</span>je po<span style="display:none;">jaa</span>moglo kod papiloma.
-Naručio sam Pa<span style="display:none;">yod</span>razol, i sa<span style="display:none;">zha</span>da ne<span style="display:none;">ygy</span>ma vi<span style="display:none;">wsa</span>še problema.
-Pored to<span style="display:none;">zzq</span>ga, pr<span style="display:none;">ckg</span>estao sam da pi<span style="display:none;">por</span>jem go<span style="display:none;">vlj</span>rki pe<span style="display:none;">alk</span>lin i pr<span style="display:none;">dgy</span>ešao na <a href="#uaetxgqyxwhwalj">Parazol</a>. Ef<span style="display:none;">ews</span>ekat je is<span style="display:none;">pgv</span>ti, ali je la<span style="display:none;">ijs</span>kši za uzimanje.
-Još sa<span style="display:none;">zha</span>da ko<span style="display:none;">iih</span>šta sa<span style="display:none;">ric</span>mo  <span class="grghoxdhgctfo">3700 din</span>!
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                   <img src="w16.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Jana Pohanová </a>
+                <div class="vk-comment-text">
+                   Ja sam lično probala lijek.
+Na vratu i pazuhu bilo je mnogo papiloma.
+Peti dan sam osjetila da ih ima manje.
+Stomak je također počeo bolje da radi.
+                </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
+            </div>
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="w40.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Karla Vaníčková</a>
+                <div class="vk-comment-text">
+                Naručila sam <a href="#order_form">Parazol</a> i prie promocije, kurir ga je dostavio dva dana kasnije.
+Na vratu je bilo mnogo papiloma.
+Počela sam da koristim lijek i takve stvari su izašle iz mene da nisam mogla da vjerujem da u crijevima može biti toliko parazita.
+                    <br>
+                    <a href="#order_form"><img class="spoiler" src="sd.jpeg" style="max-width: 100%; width: 220px;"></a></div>
 
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom10.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Vladimir Mazurek</a>
-            <div class="kom6">Vrlo za<span style="display:none;">kvw</span>nimljiv in<span style="display:none;">jxu</span>tervju, hvala!
-Otvoril ste oči ljudima!</div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom11.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Marie Schořovská</a>
-            <div class="kom6">
-              Je li ovo ne<span style="display:none;">jzh</span>ka podvala?
-Zašto je ta<span style="display:none;">scp</span>ko je<span style="display:none;">uds</span>ftino na Internetu?
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="w36.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Eva Raisová
+</a>
+                <div class="vk-comment-text">
+                  Zastrašujuće je čak pomisliti da sam živjela sa tim.
+Desilo se da sam vidjela da se u dječijoj tuti kreću beli crvi.
+Bila sam veoma uplašena!
+Nedavno se prijatelj borio sa sličnom infekcijom kod djece, i vjerovatno se zato i to dogodilo...
+Prijatelj je savetovao  <a href="#order_form">Parazol</a> za parazite, odmah sam počeo da tražim zvaničnu veb stranicu i cijela porodica je prošla kroz cijeli kurs lečenja.
+Naravno pratila sam situaciju i gledala dječiju tutu gde sam primjetila mnogo mrtvih crva!
+Nakon što smo završili ciklus lečenja, uradili smo testove na infekciju crva, rezultat je bio zadovoljavajući jer ništa nije pronađeno!
+Drugim riječima, potpuno smo izlečeni <a href="#order_form">Parazolom</a>. Glavno je da dijete čak ništa nije ni razumjelo, nije moralo da ga šokira.
+I ovo je ono što sam prvi put vidjela u loncu (nije za osobe sa slaba srca!)
+                    <br>
+                    <a href="#order_form"><img class="spoiler" src="011.jpeg" style="max-width: 100%; width: 360px;"></a>
+                </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom12.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Zdenek Kriz</a>
-            <div class="kom6">
-               Ja ta<span style="display:none;">jpf</span>kođe pr<span style="display:none;">xsx</span>eporučujem ov<span style="display:none;">spc</span>aj le<span style="display:none;">ijp</span>k. Kad sam po<span style="display:none;">qeo</span>čeo da ga ko<span style="display:none;">zxz</span>ristim, ta<span style="display:none;">wqt</span>kve st<span style="display:none;">jvh</span>vari su po<span style="display:none;">kjh</span>čele da iz<span style="display:none;">zfp</span>laze iz me<span style="display:none;">yrz</span>ne, da sam ot<span style="display:none;">tdk</span>išao u gl<span style="display:none;">wda</span>avni gr<span style="display:none;">fay</span>ad u bo<span style="display:none;">joh</span>lnicu. Ta<span style="display:none;">eyl</span>mo sam pr<span style="display:none;">edq</span>onašao pa<span style="display:none;">pyx</span>razitologa, on je sve ovo po<span style="display:none;">lrv</span>gledao i re<span style="display:none;">hfg</span>kao da su to cr<span style="display:none;">due</span>vi iz jetre.
-I da ni<span style="display:none;">oye</span>je bi<span style="display:none;">psc</span>lo <a href="#uaetxgqyxwhwalj">Parazola</a>, ub<span style="display:none;">jhe</span>ili bi me za 2-3 godine.
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="1037.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Petr Vorel</a>
+                <div class="vk-comment-text">Kada sam počeo da koristim <a href="#order_form">Parazol</a>, nisam ni pomislio da će doći do takvog efekta.
+Stomak me više ne boli (najverovatnije je bilo nešto sa crijevima), ne patim od otežanog disanja, i bol u stomaku je u potpunosti minula. I sada, sa 53 godine, mogu da se takmičim sa većinom 30-godišnjaka.
+Veoma sam vam zahvalan što ste ljudima otvorili oči i razgovarali o svom problemu.
+Takve stvari ne čujete od lokalnih terapeuta.
+Inače, košta samo <span class="al-cost">55 KM</span>! </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom13.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Lubomír Švarc</a>
-            <div class="kom6">
-              Ma<span style="display:none;">ehs</span>rie, je<span style="display:none;">upq</span>ste li pr<span style="display:none;">xrp</span>očitali članak?
-Na In<span style="display:none;">ife</span>ternetu je sve za<span style="display:none;">hrc</span>to što že<span style="display:none;">jfs</span>le da po<span style="display:none;">ohs</span>mognu ljudima!
-Kakva vr<span style="display:none;">awy</span>sta po<span style="display:none;">pfc</span>dvale mo<span style="display:none;">tju</span>že bi<span style="display:none;">sea</span>ti ako se pr<span style="display:none;">hrk</span>odaju po ce<span style="display:none;">ujc</span>ni od 37<span style="display:none;">epq</span>00 din?
-Naručio sa<span style="display:none;">yeu</span>m, ku<span style="display:none;">kxa</span>rir je do<span style="display:none;">gra</span>neo, sve sam le<span style="display:none;">jwj</span>po pr<span style="display:none;">zcg</span>egledao i sve je bi<span style="display:none;">psc</span>lo ur<span style="display:none;">fdy</span>edu. Da<span style="display:none;">eia</span>kle sa<span style="display:none;">ric</span>mo za 37<span style="display:none;">epq</span>00 din.
-Moj sa<span style="display:none;">vyg</span>vet, ne us<span style="display:none;">vfw</span>tručavaj se i naruči!
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="ruta.png" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Lepa Brena </a>
+                <div class="vk-comment-text">
+                  Nema na čemu Petr.
+Drago mi je što mogu da pomognem ljudima.
+                    <br>
 
+                </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom14.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Josef Houdecek</a>
-            <div class="kom6">
-               Od<span style="display:none;">kya</span>ličan lek!
-Moja su<span style="display:none;">oup</span>pruga i ja ga ob<span style="display:none;">atg</span>oje ko<span style="display:none;">qvr</span>ristimo i pr<span style="display:none;">gwv</span>imeteli smo da se zd<span style="display:none;">twq</span>ravlje poboljšalo.
-Osećali smo se sn<span style="display:none;">kwk</span>ažnijim, ml<span style="display:none;">xfo</span>ađim i bi<span style="display:none;">ots</span>li smo pu<span style="display:none;">efx</span>ni sn<span style="display:none;">xxa</span>age! Pa<span style="display:none;">iqr</span>raziti za<span style="display:none;">zqh</span>ista mo<span style="display:none;">zix</span>gu da oz<span style="display:none;">xjf</span>biljno na<span style="display:none;">gll</span>štete ljudima.
-Kada ih se re<span style="display:none;">tww</span>šite, os<span style="display:none;">lzv</span>ećat će<span style="display:none;">fwx</span>te se po<span style="display:none;">rey</span>tpuno drugačije.
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="1030.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Petr</a>
+                <div class="vk-comment-text">Koristio sam <a href="#order_form">Parazol</a>. Efekat je zaista nevjerovatan.
+Osjećao sam se mlado i snažno.
+Imunitet se primjetno popravio, svih 8 mjeseci nakon završetka ciklusa nikada nisam bio bolestan.
+Ranije sam o tome mogao samo sanjati.
+Preporuka za sve! </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom15.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Vladimír Adamčak</a>
-            <div class="kom6">
-              Pr<span style="display:none;">tdq</span>očitao sam kr<span style="display:none;">dxz</span>itike i sh<span style="display:none;">sql</span>vatio sam da mo<span style="display:none;">upv</span>ram da ovo na<span style="display:none;">edx</span>ručim. Ur<span style="display:none;">oxs</span>adit ću to dok je ce<span style="display:none;">jag</span>na još uv<span style="display:none;">tss</span>ek <span class="grghoxdhgctfo">3700 din
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="1031.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Martin Čennek</a>
+                <div class="vk-comment-text">Nedavno sam vidio program o parazitima u ljudskom organizmu.
+U programu su razgovarali o ovom lijeku, hvaleći se da smo u Bosni razvili najbolje sredstvo na svijetu za borbu protiv parazita.
+Čini mi se da je učestvovao čak i ministar. </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom16.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Silva Sarojanová</a>
-            <div class="kom6">Verovali ili ne, ja sam im<span style="display:none;">tiq</span>ao is<span style="display:none;">vwy</span>ti pr<span style="display:none;">frz</span>oblem, ni<span style="display:none;">qlf</span>kad ni<span style="display:none;">zae</span>sam im<span style="display:none;">tiq</span>ao sn<span style="display:none;">rcu</span>age, im<span style="display:none;">tiq</span>ao sam pa<span style="display:none;">zsg</span>pilome... Bio sam sk<span style="display:none;">jag</span>oro i od<span style="display:none;">iqa</span>ustao, a on<span style="display:none;">hhk</span>da sam sa<span style="display:none;">ivo</span>znao za  <a href="#uaetxgqyxwhwalj">Parazol</a>. Ovo je za<span style="display:none;">zqh</span>ista ma<span style="display:none;">txj</span>gičan le<span style="display:none;">suh</span>k, pr<span style="display:none;">xsx</span>eporučujem ga svima!</div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom17.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Jana Šímová</a>
-            <div class="kom6">Hvala na savetu.
-Zaista se mo<span style="display:none;">wgh</span>ramo is<span style="display:none;">hue</span>čistiti. Ba<span style="display:none;">dha</span>rem je<span style="display:none;">zuz</span>dnom u životu.
-Nikada ni<span style="display:none;">zae</span>sam pr<span style="display:none;">hpx</span>obao, ali sa<span style="display:none;">zha</span>da mi<span style="display:none;">fqq</span>slim da ako ih im<span style="display:none;">fwf</span>a, bez pa<span style="display:none;">qyw</span>razita će bi<span style="display:none;">sea</span>ti mn<span style="display:none;">vvh</span>ogo la<span style="display:none;">ucz</span>kše :) Mi<span style="display:none;">ick</span>slim da ih si<span style="display:none;">upw</span>gurno im<span style="display:none;">wxu</span>am u telu.</div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh vgfglytxxgh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom18.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Jaroslava Chládková</a>
-            <div class="kom6">
-              Hv<span style="display:none;">yqu</span>ala vam Olja.
-Da ni<span style="display:none;">oye</span>je bi<span style="display:none;">psc</span>lo va<span style="display:none;">zlk</span>s, ni<span style="display:none;">kue</span>kada ne bih sa<span style="display:none;">ivo</span>znao za ov<span style="display:none;">spc</span>aj lek.
-I, na<span style="display:none;">ezj</span>jverovatnije, um<span style="display:none;">hzx</span>rla bih za par godina.
-Trebalo je da vi<span style="display:none;">ztp</span>dite šta je iz<span style="display:none;">qil</span>ašlo iz me<span style="display:none;">xvp</span>ne kad sam po<span style="display:none;">qeo</span>čeo da uz<span style="display:none;">xjg</span>imam ov<span style="display:none;">spc</span>aj lek.
-I da! Pa<span style="display:none;">zxv</span>ket je vr<span style="display:none;">owd</span>lo br<span style="display:none;">pod</span>zo st<span style="display:none;">idf</span>igao u Zlin.
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="1033.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Jana Lefnerová</a>
+                <div class="vk-comment-text">
+                    Takođe sam naručio lijek dok se prodavao <span class="al-cost">55 KM</span>.
+Obećali su da će ga donijeti za nedelju dana, sačekaćemo. 
+                </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="br1.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Olja Bećković</a>
-            <div class="kom6">Nema na če<span style="display:none;">yal</span>mu Jaroslava.
-Nego re<span style="display:none;">yrx</span>cite mi ko<span style="display:none;">dlw</span>liko je tr<span style="display:none;">wzp</span>ajalo lečenje?
-              <br>
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="4.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Stefan Koky</a>
+                <div class="vk-comment-text">Bolovi u glavi i stomaku muče me već duže vrijeme.
+Pio sam <a href="#order_form">Parazol</a> nekoliko sedmica, sve je nestalo.
+Sad već mislim - možda je nešto živjelo tamo unutra... </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
+            </div>
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="w1030.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Věra Kosarova</a>
+                <div class="vk-comment-text">
+                  Moja baka je naučila da liječi parazite gorkim pelinom.
+Cijela porodica ga pije, i okruglasti crvi izlaze iz djece putem stolice.
+Ali nije pomoglo kod papiloma.
+Naručio sam Avormin, i sada nema više problema.
+Pored toga, prestao sam da pijem gorki pelin i prešao na <a href="#order_form">Parazol</a>. Efekat je isti, ali je lakši za uzimanje.
+Još sada košta samo  <span class="al-cost">55 KM</span>!
 
+                </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh vgfglytxxgh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom18.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Jaroslava Chládková</a>
-            <div class="kom6">Oko 30 da<span style="display:none;">ukk</span>na Olja.</div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="br1.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Olja Bećković</a>
-            <div class="kom6">
-              Sve je ja<span style="display:none;">uho</span>sno Ja<span style="display:none;">wzr</span>roslava. Hv<span style="display:none;">yqu</span>ala vam
-              <br>
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="1034.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Vladimir Mazurek</a>
+                <div class="vk-comment-text">Vrlo zanimljiv intervju, hvala!
+Otvoril ste oči ljudima! </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="kom7">Prije sat vremena</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom19.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Alena</a>
-            <div class="kom6">
-              Re<span style="display:none;">xiz</span>zultat je pr<span style="display:none;">xkx</span>emašio sva očekivanja.
-Puni ci<span style="display:none;">gkk</span>klus le<span style="display:none;">kij</span>čenja je tr<span style="display:none;">hlh</span>ajao me<span style="display:none;">ecu</span>sec da<span style="display:none;">tws</span>na, sa<span style="display:none;">zha</span>da se os<span style="display:none;">tww</span>ećam 20 go<span style="display:none;">hhu</span>dina mlađe.
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="w37.jpg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Marie Schořovská
+</a>
+                <div class="vk-comment-text">
+                   Je li ovo neka podvala?
+Zašto je tako jeftino na Internetu?
+                </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="kom7">Pre 57 minuta</div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom20.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Lena Kristiánová</a>
-            <div class="kom6">
-              Up<span style="display:none;">spe</span>ravo sa<span style="display:none;">zha</span>da sam ug<span style="display:none;">xzs</span>rabio po<span style="display:none;">zqr</span>sebnu ak<span style="display:none;">uct</span>ciju! Od<span style="display:none;">flr</span>lični us<span style="display:none;">agy</span>lovi, požurite!
-Vrlo br<span style="display:none;">pod</span>zo su po<span style="display:none;">tqs</span>zvali i po<span style="display:none;">uqy</span>tvrdili mo<span style="display:none;">uxv</span>ju narudžbu.
-Zastrašujuće je ži<span style="display:none;">qps</span>veti sa tim st<span style="display:none;">dtj</span>varima u telu!
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="m2.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Zdenek Kriz</a>
+                <div class="vk-comment-text">
+                    Ja također preporučujem ovaj lijek. Kad sam počeo da ga koristim, takve stvari su počele da izlaze iz mene, da sam otišao u glavni grad u bolnicu. Tamo sam pronašao parazitologa, on je sve ovo pogledao i rekao da su to crvi iz jetre.
+I da nije bilo <a href="#order_form">Parazola</a>, ubili bi me za 2-3 godine.
+                </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
+            </div>
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="m3.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Lubomír Švarc</a>
+                <div class="vk-comment-text">
+                   Marie, jeste li pročitali članak?
+Na Internetu je sve zato što žele da pomognu ljudima!
+Kakva vrsta podvale može biti ako se prodaju po cijeni od 55KM?
+Naručio sam, kurir je donio, sve sam lepo pregledao i sve je bilo uredu. Dakle samo za 55 KM.
+Moj savjet, ne ustručavaj se i naruči!
 
+                </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="kom7">Pre 55 minuta
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="m4.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Josef Houdecek</a>
+                <div class="vk-comment-text">
+                  Odličan lijek!
+Moja supruga i ja ga oboje koristimo i primjetili smo da se zdravlje poboljšalo.
+Osjećali smo se snažnijim, mlađim i bili smo puni snage! Paraziti zaista mogu da ozbiljno naštete ljudima.
+Kada ih se riješite, osjećat ćete se potpuno drugačije.
+                </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom21.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Renata Kičurová</a>
-            <div class="kom6">Moje de<span style="display:none;">fxc</span>te je ho<span style="display:none;">uoi</span>spitalizovano zb<span style="display:none;">fvg</span>og parazita.
-Lekari su ih dva pu<span style="display:none;">rzu</span>ta po<span style="display:none;">lkk</span>kušali od<span style="display:none;">jfc</span>straniti i oba pu<span style="display:none;">rzu</span>ta su bi<span style="display:none;">ots</span>li be<span style="display:none;">akl</span>zuspešni! Re<span style="display:none;">gxd</span>kli su da su ne<span style="display:none;">ecj</span>ki po<span style="display:none;">klr</span>sebni pa<span style="display:none;">fqi</span>raziti u pi<span style="display:none;">xci</span>tanju i da lek ne mo<span style="display:none;">tju</span>že da se no<span style="display:none;">saw</span>si sa njima.
-Pomogao je sa<span style="display:none;">ric</span>mo <a href="#uaetxgqyxwhwalj">Parazol</a>Mnogo vam hvala!</div>
-            <div class="kom7">Pre 53 minuta
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="1032.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Vladimír Adamčak</a>
+                <div class="vk-comment-text">
+                    Pročitao sam kritike i shvatio sam da moram da ovo naručim. Uradit ću to dok je cijena još uvek <span class="al-cost">55 KM </span>.
+                </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom22.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Vešínová Ivana</a>
-            <div class="kom6">U pr<span style="display:none;">zqk</span>ivatnoj ap<span style="display:none;">cgk</span>oteci na<span style="display:none;">vjq</span>šeg po<span style="display:none;">gcq</span>znanika se pr<span style="display:none;">cqo</span>odaje za 74<span style="display:none;">zev</span>00 di<span style="display:none;">fvs</span>n, pa se ni<span style="display:none;">zae</span>sam us<span style="display:none;">pov</span>udio da ku<span style="display:none;">ele</span>pim, bi<span style="display:none;">psc</span>lo mi je skupo.
-A on<span style="display:none;">hhk</span>da sam vi<span style="display:none;">udh</span>deo da ima 37<span style="display:none;">epq</span>00 din i od<span style="display:none;">dek</span>mah po<span style="display:none;">agc</span>slao narudžbu.</div>
-            <div class="kom7">Pre 48 minuta
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="w39.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Silva Sarojanová</a>
+                <div class="vk-comment-text">Vjerovali ili ne, ja sam imao isti problem, nikad nisam imao snage, imao sam papilome... Bio sam skoro i odustao, a onda sam saznao za <a href="#order_form">Parazol</a>. Ovo je zaista magičan lijek, preporučujem ga svima!</div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="br1.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Agata Młynarska</a>
-            <div class="kom6">Ivana, zn<span style="display:none;">geo</span>ači da i ap<span style="display:none;">lgf</span>oteke to po<span style="display:none;">tdh</span>kušavaju da preprodaju.
-Zaista je ru<span style="display:none;">trw</span>žno pr<span style="display:none;">rcx</span>ofitirati na taj na<span style="display:none;">uqg</span>čin od ljudi.
-Koja ološ!</div>
-            <div class="kom7">Pre 46 minuta
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="w38.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Jana Šímová</a>
+                <div class="vk-comment-text">Hvala na savetu.
+Zaista se moramo isčistiti. Barem jednom u životu.
+Nikada nisam probao, ali sada mislim da ako ih ima, bez parazita će biti mnogo lakše :) Mislim da ih sigurno imam u tijelu. </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom23.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Lucie</a>
-            <div class="kom6">Već 2 ne<span style="display:none;">fej</span>delje ko<span style="display:none;">jdy</span>ristim <a href="#uaetxgqyxwhwalj">Parazol</a> .U<span style="display:none;">lvv</span>vek se os<span style="display:none;">tww</span>ećam ve<span style="display:none;">dts</span>dro, pu<span style="display:none;">gip</span>no energije.
-Pre sam ho<span style="display:none;">ogx</span>dala po ku<span style="display:none;">ugq</span>ći kao ba<span style="display:none;">kzk</span>ka ko<span style="display:none;">zit</span>ja umire.
-Odličan lek!</div>
-            <div class="kom7">Pre 44 minuta
+            <div class="vk-comment-load comment-id-1">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="222.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Jaroslava Chládková</a>
+                <div class="vk-comment-text">
+Hvala vam Lepa.
+Da nije bilo vas, nikada ne bih saznao za ovaj lek.
+I, najvjerovatnije, umrla bih za par godina.
+Trebalo je da vidite šta je izašlo iz mene kad sam počeo da uzimam ovaj lijek.
+I da! Paket je vrlo brzo stigao u Zlin.
+ </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom24.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Miroslav Typlt</a>
-            <div class="kom6">Ja sam iz Chomutova.
-Poslao sam na<span style="display:none;">rpe</span>rudžbu za lek.
-Nadam se da još im<span style="display:none;">jsu</span>aju na stanju!
-            </div>
-            <div class="kom7">Pre 39 minuta
-            </div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="br1.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Olja Bećković</a>
-            <div class="kom6">Miroslav, lek se di<span style="display:none;">wfo</span>stribuira ši<span style="display:none;">ywy</span>rom zemlje!
-            </div>
-            <div class="kom7">Pre 36 minuta
-            </div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom25.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Eliška Trchalikova</a>
-            <div class="kom6">Pročitao sam čl<span style="display:none;">zps</span>anak i od<span style="display:none;">uao</span>lučio da na<span style="display:none;">uck</span>ručim i da ga probam.
-Gotovo svi mo<span style="display:none;">ryg</span>ji si<span style="display:none;">lgg</span>mptomi su očigledni.
-Mnogo pa<span style="display:none;">qaz</span>piloma po telu</div>
-            <div class="kom7">Pre 31 minuta
-            </div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="kom26.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Lipčáková</a>
-            <div class="kom6">Ljudi, re<span style="display:none;">yrx</span>cite mi gde ste ku<span style="display:none;">gdl</span>pili ov<span style="display:none;">spc</span>aj lek?
-U ap<span style="display:none;">jwe</span>otekama ne<span style="display:none;">ygy</span>ma ta<span style="display:none;">ufj</span>kvog le<span style="display:none;">ayw</span>ka, a st<span style="display:none;">svq</span>rah me na<span style="display:none;">lia</span>ručiti na Internetu.
-Želeo bih da iz<span style="display:none;">hpe</span>begnem la<span style="display:none;">hrp</span>žnjake, je<span style="display:none;">jav</span>r, ko<span style="display:none;">dlw</span>liko ra<span style="display:none;">apy</span>zumem, od nj<span style="display:none;">aky</span>ih ne<span style="display:none;">ygy</span>ma koristi
-            </div>
-            <div class="kom7">Pre 27 minuta
-            </div>
-          </div>
-          <div class="dwjykwkgzcgsyh">
-            <a href="#uaetxgqyxwhwalj" class="kom4">
-              <img src="br1.png" width="48px" height="48px">
-            </a>
-            <a href="#uaetxgqyxwhwalj" class="kom5">Olja Bećković</a>
-            <div class="kom6">
-            Još je<span style="display:none;">zuz</span>dnom po<span style="display:none;">zpd</span>navljam da se  <a href="#uaetxgqyxwhwalj">Parazol</a> mo<span style="display:none;">tju</span>že na<span style="display:none;">lia</span>ručiti SA<span style="display:none;">xsq</span>MO sl<span style="display:none;">qiw</span>anjem i po<span style="display:none;">sht</span>punjavanjem ob<span style="display:none;">gok</span>rasca za na<span style="display:none;">rpe</span>rudžbu na ov<span style="display:none;">edz</span>oj web stranici.
-Dakle, sa<span style="display:none;">ric</span>mo kl<span style="display:none;">wdq</span>iknite na ve<span style="display:none;">aqd</span>zu ko<span style="display:none;">lyp</span>ju sam na<span style="display:none;">ayo</span>veo od<span style="display:none;">dek</span>mah ispod!
-Stanovnici Sr<span style="display:none;">yyt</span>bije u ok<span style="display:none;">zyu</span>viru po<span style="display:none;">afd</span>sebnog pr<span style="display:none;">xfe</span>ograma  <a href="#uaetxgqyxwhwalj">Parazol</a> mo<span style="display:none;">zix</span>gu do<span style="display:none;">dwd</span>biti za 37<span style="display:none;">epq</span>00 di<span style="display:none;">fvs</span>n, pa po<span style="display:none;">otq</span>žurite i na<span style="display:none;">gox</span>ručite! I da, mo<span style="display:none;">iut</span>lim va<span style="display:none;">zlk</span>s, iz<span style="display:none;">oeu</span>begavajte lažnjake!
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="ruta.png" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Lepa Brena </a>
+                <div class="vk-comment-text">Nema na čemu Jaroslava.
+Nego recite mi koliko je trajalo liječenje?
+                    <br>
 
+                </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="kom7">Pre 15 minuta</div>
-          </div>
-
-        </main>
-      </div>
-
-      <aside id="gliczrueyy" class="dohgpzigaajuvtd akgdjjuuoavozv">
-
-        <section id="ojldztpyojfk" class="adfsfappawqzy pauwlthgvry">
-          <div class="auqxouytgr">
-            <div class="fsoxdfdduewypvg">
-              <p>
-                <a href="#uaetxgqyxwhwalj"><img src="r1.png"></a>
-              </p>
-              <p><b><a href="#uaetxgqyxwhwalj" style="color: #444; text-decoration: none;">U Sr<span style="display:none;">ifr</span>biji je od pa<span style="display:none;">qyw</span>razita um<span style="display:none;">gsk</span>rlo 10<span style="display:none;">oau</span>.548 ljudi</a></b></p>
+            <div class="vk-comment-load comment-id-1">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="222.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Jaroslava Chládková</a>
+                <div class="vk-comment-text">Oko 30 dana Lepa.</div>
+                <div class="vk-comment-date">Prije sat vremena</div>
             </div>
-            <div class="fsoxdfdduewypvg">
-              <p>
-                <a href="#uaetxgqyxwhwalj"><img src="r2.png"></a>
-              </p>
-              <p><b><a href="#uaetxgqyxwhwalj" style="color: #444; text-decoration: none;">Nobelovac: "L<span style="display:none;">aoe</span>judski pa<span style="display:none;">fqi</span>raziti gl<span style="display:none;">krh</span>avna su pr<span style="display:none;">cea</span>ijetnja na<span style="display:none;">xlz</span>šem svijetu!"</a></b></p>
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="ruta.png" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Lepa Brena </a>
+                <div class="vk-comment-text">
+                   Sve je jasno Jaroslava. Hvala vam
+                    <br>
+                </div>
+                <div class="vk-comment-date">Prije sat vremena</div>
+            </div>
+            <div class="vk-comment">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="90.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Alena Žídková</a>
+                <div class="vk-comment-text">
+                   Rezultat je premašio sva očekivanja.
+Puni ciklus liječenja je trajao mjesec dana, sada se osećam 20 godina mlađe.
+                </div>
+                <div class="vk-comment-date">Pre 57 minuta
+</div>
+            </div>
+            <div class="vk-comment">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="414.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Lena Kristiánová</a>
+                <div class="vk-comment-text">
+                    Upravo sada sam ugrabio posebnu akciju! Odlični uslovi, požurite!
+Vrlo brzo su pozvali i potvrdili moju narudžbu.
+Zastrašujuće je živeti sa tim stvarima u tijelu!
+
+
+                </div>
+                <div class="vk-comment-date">Pre 55 minuta
+</div>
+            </div>
+            <div class="vk-comment">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="400.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Renata Kičurová</a>
+                <div class="vk-comment-text">Moje dete je hospitalizovano zbog parazita.
+Ljekari su ih dva puta pokušali odstraniti i oba puta su bili bezuspešni! Rekli su da su neki posebni paraziti u pitanju i da lijek ne može da se nosi sa njima.
+Pomogao je samo <a href="#order_form">Parazol</a>Mnogo vam hvala!</div>
+                <div class="vk-comment-date">Pre 53 minuta
+</div>
+            </div>
+            <div class="vk-comment">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="5.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Vešínová Ivana</a>
+                <div class="vk-comment-text">U privatnoj apoteci našeg poznanika se prodaje za 110 KM, pa se nisam usudio da kupim, bilo mi je skupo.
+A onda sam vidio da ima za 55 KM i odmah napravio narudžbu.</div>
+                <div class="vk-comment-date">Pre 48 minuta
+</div>
+            </div>
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="ruta.png" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Lepa Brena </a>
+                <div class="vk-comment-text">Ivana, znači da i apoteke to pokušavaju da preprodaju.
+Zaista je ružno profitirati na taj način od ljudi.
+Koja ološ! </div>
+                <div class="vk-comment-date">Pre 46 minuta
+</div>
+            </div>
+            <div class="vk-comment">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="82.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Lucie Tomíčková
+</a>
+                <div class="vk-comment-text">Već 2 sedmice koristim <a href="#order_form">Parazol</a>.Uvek se osećam vedro, puno energije.
+Prije sam hodala po kući kao neka nana koja umire.
+Odličan lijek!  </div>
+                <div class="vk-comment-date">Pre 44 minuta
+</div>
+            </div>
+            <div class="vk-comment">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="401.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Miroslav Typlt</a>
+                <div class="vk-comment-text">Ja sam iz Chomutova.
+Poslao sam narudžbu za lijek.
+Nadam se da još imaju na stanju!
+ </div>
+                <div class="vk-comment-date">Pre 39 minuta
+</div>
+            </div>
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="ruta.png" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Lepa Brena </a>
+                <div class="vk-comment-text">Miroslav, lek se distribuira širom zemlje!
+</div>
+                <div class="vk-comment-date">Pre 36 minuta
+</div>
+            </div>
+            <div class="vk-comment">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="413.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Eliška Trchalikova</a>
+                <div class="vk-comment-text">Pročitao sam članak i odlučio da naručim i da probam.
+Gotovo svi moji simptomi su očigledni.
+Mnogo papiloma po telu </div>
+                <div class="vk-comment-date">Pre 31 minuta
+</div>
+            </div>
+            <div class="vk-comment">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="412.jpeg" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Lipčáková Zdenka</a>
+                <div class="vk-comment-text">Ljudi, recite mi gdje ste kupili ovaj lijek?
+U apotekama nema takvog lijeka, a strah me naručiti na Internetu.
+Želio bih da izbjegnem lažnjake, jer, koliko razumijem, od njih nema koristi </div>
+                <div class="vk-comment-date">Pre 27 minuta
+</div>
+            </div>
+            <div class="vk-comment-load">
+                <a href="#order_form" class="vk-avatar">
+                    <img src="ruta.png" width="48px" height="48px">
+                </a>
+               <a href="#order_form" class="vk-comment-name">Lepa Brena </a>
+                <div class="vk-comment-text">
+                   Još jednom ponavljam da se   <a href="#order_form">Parazol</a> može naručiti SAMO slanjem i popunjavanjem obrasca za narudžbu na ovoj web stranici.
+Dakle, samo kliknite na vezu koju sam navela odmah ispod!
+Stanovnici Bosne u okviru posebnog programa  <a href="#order_form">Parazol</a> mogu dobiti za 55 KM, pa požurite i naručite! I da, molim vas, izbjegavajte lažnjake!
+
+                </div>
+                <div class="vk-comment-date">Pre 15 minuta
+</div>
+            </div>
+            
+        </div>
+    </div>
+    <div id="r-sidebar" class="content-right">
+        <div class="content-right-recommend-container" style="margin-top: 0px; left: 0px; position: relative; top: 0px; bottom: 0px;">
+            <div class="content-right-recommend">
+                <p><a href="#order_form"><img src="01.jpg"></a></p>
+                <p><b><a href="#order_form" style="color: #444; text-decoration: none;">U Bosni je od parazita umrlo 10.548 ljudi</a></b></p>
             </div>
 
-            <div class="fsoxdfdduewypvg">
-              <p>
-                <a href="#uaetxgqyxwhwalj"><img src="r3.png"></a>
-              </p>
-              <p><b><a href="#uaetxgqyxwhwalj" style="color: #444; text-decoration: none;">Gotovo 17% za<span style="display:none;">llw</span>raženih pa<span style="display:none;">vcd</span>razitima ži<span style="display:none;">kps</span>vi s nj<span style="display:none;">kqz</span>ima du<span style="display:none;">cju</span>že od 11 godina.</a></b></p>
+            <div class="col-md-3">
+                <p><a href="#order_form"><img src="08.jpg"></a></p>
+                <p><b><a href="#order_form" style="color: #444; text-decoration: none;">Nobelovac: "Ljudski paraziti glavna su prijetnja našem svijetu!"
+
+</a></b></p>
             </div>
 
-            <div class="fsoxdfdduewypvg">
-              <p>
-                <a href="#uaetxgqyxwhwalj"><img src="r4.png"></a>
-              </p>
-              <p><a href="#uaetxgqyxwhwalj" style="color: #444; text-decoration: none;"><b>Francuska pr<span style="display:none;">jag</span>egovara o ku<span style="display:none;">lip</span>povini le<span style="display:none;">tof</span>ka iz Srbije</b></a></p>
+
+            <div class="col-md-3">
+                <p><a href="#order_form"><img src="02.jpg"></a></p>
+                <p><b>Gotovo 17% zaraženih parazitima živi s njima duže od 11 godina.
+</b></p>
             </div>
 
-            <div class="fsoxdfdduewypvg">
-              <p>
-                <a href="#uaetxgqyxwhwalj"><img src="r5.png"></a>
-              </p>
-              <p><a href="#uaetxgqyxwhwalj" style="color: #444; text-decoration: none;"><b>Zašto je pa<span style="display:none;">afe</span>razite ta<span style="display:none;">scp</span>ko te<span style="display:none;">vcy</span>ško uk<span style="display:none;">rok</span>loniti iz tela?</b></a></p>
-            </div>
-
-            <div class="fsoxdfdduewypvg">
-              <center>
-                <p>
-                  <a href="#uaetxgqyxwhwalj"><img src="para.jpg" style="width:60%;
-                    max-width: 250px"></a>
-                </p>
-              </center>
-              <p><a href="#uaetxgqyxwhwalj" style="color: #444; text-decoration: none;"><b>U Sr<span style="display:none;">ifr</span>biji je za<span style="display:none;">alz</span>počela ce<span style="display:none;">eed</span>ntralizovana di<span style="display:none;">tss</span>stribucija le<span style="display:none;">vgx</span>kova za parazite</b></a>
-              </p>
-            </div>
-
-            <div class="fsoxdfdduewypvg">
-              <p>
-                <a href="#uaetxgqyxwhwalj"><img src="r7.png"></a>
-              </p>
-              <p><a href="#uaetxgqyxwhwalj" style="color: #444; text-decoration: none;"><b>SAD op<span style="display:none;">yzo</span>tužuju Sr<span style="display:none;">eyw</span>biju da ne že<span style="display:none;">qtt</span>li de<span style="display:none;">yth</span>liti an<span style="display:none;">hwv</span>tiparazitne lijekove
+            <div class="col-md-3">
+                <p><a href="#order_form"><img src="03.jpg"></a></p>
+                <p><a href="#order_form" style="color: #444; text-decoration: none;"><b>Francuska pregovara o kupovini leka iz Bosni
 </b></a></p>
-          </div>
-        </section>
-      </aside>
-    </div>
-  </div>
-
-  <footer id="jiczxxlgdfwqvgo" class="rwosdkcxvezud">
-
-    <aside class="akgdjjuuoavozv">
-      <div class="thftxdzexxzo">
-        <div class="row">
-          <div class="ltwlfgvvtachrfw vclgczsygg" id="rwjgopcupyik">
-          </div>
-          <div class="ltwlfgvvtachrfw vclgczsygg" id="xzsgdeoqkpcerp">
-          </div>
-          <div class="ltwlfgvvtachrfw vclgczsygg" id="jypfkkvggrv">
-          </div>
-        </div>
-      </div>
-    </aside>
-
-    <div class="xioisedqddvpx">
-      <div class="thftxdzexxzo">
-        <div class="row">
-          <div class="yltzyxcdjaivtg cfpzfgvoxhupth">
-            <div class="tkxjgqqcgfskli">
             </div>
-          </div>
-          <div class="yltzyxcdjaivtg cfpzfgvoxhupth">
-          </div>
+
+            <div class="col-md-3">
+                <p><a href="#order_form"><img src="04.jpg"></a></p>
+                <p><a href="#order_form" style="color: #444; text-decoration: none;"><b>Zašto je parazite tako teško ukloniti iz tijela?
+</b></a></p>
+            </div>
+
+            <div class="col-md-3">
+                <center><p><a href="#order_form"><img src="product.png" style="width:60%;
+                    max-width: 250px"></a></p></center>
+                <p><a href="#order_form" style="color: #444; text-decoration: none;"><b>U Bosni je započela centralizovana distribucija lijekova za parazite
+</b></a>
+                </p>
+            </div>
+
+            <div class="col-md-3">
+                <p><a href="#order_form"><img src="07.jpg"></a></p>
+                <p><a href="#order_form" style="color: #444; text-decoration: none;"><b>SAD optužuju Bosnu da ne želi dijeliti antiparazitne lijekove
+</b></a></p>
+            </div>
         </div>
-      </div>
     </div>
-  </footer>
-  <a href="#pexywkukvu" id="rusjqxukhw" style="display: inline;"><span class="vuqyrulvkktkaat eqpsozaqpxg"></span></a>
-  </div>
+</div>
 
-  <link rel="stylesheet" href="css.css" media="all">
-  <script type="text/javascript">
-    $("a[href^='#']").click(function() {
-      var _href = $(this).attr("href");
-      $("html, body").animate({
-        scrollTop: $(_href).offset().top
-      }, 1500);
-      return false;
-    });
-  </script>
-  <script src="tl-validator.js?country=ba&label=false"></script>
-<center><a href="privacy-policy.html">Privacy policy</a> | <a href="terms.html">Terms and Conditions</a></center></body>
 
+<center>
+
+<div class="pluso" data-background="transparent" data-options="big,square,line,horizontal,counter,theme=01" data-services="google,facebook,twitter,email,pinterest,linkedin,googlebookmark,print,digg,vkontakte,odnoklassniki"><div class="pluso-010010101001-01"><span class="pluso-wrap" style="background:transparent"><a href="" title="Google+" class="pluso-google"></a><a href="" title="Facebook" class="pluso-facebook"></a><a href="" title="Twitter" class="pluso-twitter"></a><a href="" title="Отправить на email" class="pluso-email"></a><a href="" title="Pinterest" class="pluso-pinterest"></a><a href="" title="LinkedIn" class="pluso-linkedin"></a><a href="" title="Google закладки" class="pluso-googlebookmark"></a><a href="" title="Печатать" class="pluso-print"></a><a href="" title="Digg" class="pluso-digg"></a><a href="" title="ВКонтакте" class="pluso-vkontakte"></a><a href="" title="Одноклассники" class="pluso-odnoklassniki"></a><a href="https://pluso.ru/" class="pluso-more"></a></span><span class="pluso-counter"><b title="114">114</b></span></div></div></center>
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<!-- UNILAND START -->
+
+<img src="pixel.gif">
+<noscript>
+    <div><img src="pixel-1.gif" style="position:absolute; left:-9999px;" alt=""></div>
+</noscript>
+<!-- UNILAND END -->
+
+
+
+
+<style>			.validator__tooltip { 				position: absolute; 				z-index: 700; 				display: block; 				font-family: -apple-system,system-ui,BlinkMacSystemFont,"Segoe UI",Roboto,"Helvetica Neue",Arial,sans-serif; 				font-style: normal; 				font-weight: 400; 				letter-spacing: normal; 				line-break: auto; 				line-height: 1.5; 				text-align: left; 				text-align: start; 				text-decoration: none; 				text-shadow: none; 				text-transform: none; 				white-space: normal; 				word-break: normal; 				word-spacing: normal; 				font-size: 14px; 				word-wrap: break-word; 				opacity: 1; 				padding-bottom: 5px; 				pointer-events: none 			} 			.input-wrapper .error+label {				pointer-events: none;			} 			.validator__tooltip-inner { 				max-width: 290px; 				padding: 3px 8px; 				color: #fff; 				text-align: center; 				background-color: #cd5b20; 				border-radius: 4px; 			} 			.validator__tooltip-inner::before { 				position: absolute; 				width: 0; 				height: 0; 				border-color: transparent; 				border-style: solid; 				bottom: 1px; 				left: 50%; 				margin-left: -5px; 				content: ""; 				border-width: 5px 5px 0; 				border-top-color: #cd5b20; 			}</style><style type="text/css">.pluso{position:relative;z-index:1;display:inline-block;padding:0;-webkit-border-radius:22px;-moz-border-radius:22px;border-radius:22px;background:transparent;text-align:left;font-size:0;line-height:0;*display:inline;*zoom:1;}
+.pluso span{float:none;}
+.pluso-010010101001-01 a:active{ opacity:.6; }
+.pluso-010010101001-01 .pluso-wrap a{display:inline-block;vertical-align:inherit;margin:5px 0 0 5px;padding:0;width:40px;height:40px;background:url("04.png") 0 0 transparent no-repeat;}
+.pluso-wrap{margin:0px !important;}
+.pluso-010010101001-01 .pluso-wrap{position:relative;z-index:1;display:inline-block;padding:0 5px 5px 0;-webkit-border-radius:6px;-moz-border-radius:6px;border-radius:6px;background:transparent;text-align:left;font-size:0;line-height:0;*display:inline;*zoom:1;}
+.pluso-010010101001-01 a.pluso-more{width:40px;height:40px;background:url("plus.png") 0 -60px no-repeat!important;position:relative;}
+.pluso-010010101001-01 a.pluso-more{margin-right:-22px;*left:5px;}
+.pluso-010010101001-01 .pluso-counter b{position:relative;padding:8px 12px;-webkit-border-radius: 22px;-moz-border-radius: 22px;border-radius: 122px;background:#eaeaeb;box-shadow:0 0 3px rgba(0,0,0,.3);color:#707070;white-space:nowrap;font:16px/40px Tahoma, Geneva, sans-serif!important;}
+.pluso-010010101001-01 .pluso-counter{position:relative;padding-right:28px;}
+.pluso-010010101001-01 .pluso-counter b{top:-14px;left:28px;}
+.pluso-010010101001-01 .pluso-counter b:after{position: absolute;top: 13px;left: -8px;z-index: 0;display: block;width: 0;border-width: 5px 9px 5px 0;border-style: solid;border-color: transparent #eaeaeb;content: '';}
+.pluso-010010101001-01 br{ display:none; }
+.pluso-box{position:absolute;border:4px solid #eaebea;width:310px;height:225px;overflow:hidden;z-index: 777;background:#f2f2f2;font:normal normal 12px/25px Tahoma, Geneva, sans-serif;box-shadow:0 4px 10px rgba(0, 0, 0, 0.4);text-align:left;-webkit-border-radius:14px;-moz-border-radius:14px;border-radius:14px;}
+.pluso-box a b{width:20px;height:20px;position:absolute;left:0;top:2px;}
+.pluso-box a:visited,.pluso-box a:hover,.pluso-box a{font:normal normal 12px/25px Tahoma, Geneva, sans-serif;color:#7f7f7f;text-decoration:none;white-space:nowrap;padding:0 0 0 25px;margin:0 0 0 5px;border:0;position:relative;width:115px;float:left;}
+.pluso-box .pluso-list{background:#ffffff;border-radius:14px;width:100%;height:200px;overflow:auto;position:absolute;left:0;top:25px;}
+.pluso-box a.pluso-logo{background:url("") 0 5px no-repeat;width:66px;height:19px;border:0;text-indent:-600em;padding:0 0 0 12px;margin:0 0 0 9px;}
+.pluso-box a.pluso-go{color:#4c4c4c;text-decoration:underline;padding-left:0;}
+.pluso-box a.pluso-close,.pluso-box a.pluso-close:hover,.pluso-box a.pluso-close:visited{float:right;width:20px;text-align:center;font-size:12px;line-height:20px;width:20px;margin:1px 1px 0 0;padding:0;font-weight:bold;color:#4c4c4c;text-decoration:none;background:#ffffff;border-radius:15px;border:1px solid #eaebea;}
+.pluso-box a.pluso-close:hover{background:#7f7f7f;color:#ffffff;border-color:transparent}
+.pluso-tip{cursor:pointer;position:absolute;padding:10px;-webkit-border-radius:5px;-moz-border-radius:5px;border-radius:5px;white-space:nowrap;font:bold 14px/12px Tahoma, Geneva, sans-serif!important;color:#fff;background:#f78d1d;background:-webkit-gradient(linear, left top, left bottom, from(#7ed263), to(#3d9530));background:-webkit-linear-gradient(top,#7ed263,#3d9530);background:-moz-linear-gradient(top,#7ed263,#3d9530);background:-ms-linear-gradient(top,#7ed263,#3d9530);background:-o-linear-gradient(top,#7ed263,#3d9530);background:linear-gradient(top,#7ed263,#3d9530);filter:progid:DXImageTransform.Microsoft.gradient(GradientType=0,startColorstr=#7ed263, endColorstr=#3d9530);box-shadow:0 0 5px rgba(0,0,0,.5), inset 0 0 0px 1px rgba(0,0,0,.3)}
+.pluso-tip:after{position:absolute;z-index:0;display:block;width:0;height:0;border-style: solid;content:''}
+.pluso-tip.pluso-left-arrow:after{top:40%;right:-6px;border-color:transparent #447b36;border-width:6px 0px 6px 6px}
+.pluso-tip.pluso-top-arrow:after{bottom:-6px;border-color:#27601f transparent;border-width:6px 6px 0px 6px}
+.pluso-tip.pluso-bottom-arrow:after{top:-6px;border-color:#447b36 transparent;border-width:0px 6px 6px 6px}
+@keyframes pluso-market-animate{0% { opacity:1 } 50%{ opacity:.3} 100% { opacity:1}}
+@-webkit-keyframes pluso-market-animate{0% { opacity:1 } 50%{ opacity:.3} 100% { opacity:1}}
+.pluso-overlay-background{height:100%;width:100%;position:fixed;left:0;top:0;z-index:999999999;background-color: rgb(0, 0, 0);background-color: rgba(0, 0, 0, 0.6);filter:progid:DXImageTransform.Microsoft.gradient(startColorstr=#99000000, endColorstr=#99000000);-ms-filter: "progid:DXImageTransform.Microsoft.gradient(startColorstr=#99000000, endColorstr=#99000000)";padding:0;margin:0;}
+.pluso-overlay-box{width:910px;margin: 50px auto 0;overflow:hidden;height:85%;background-color: #f5f5f5;border:1px solid #c4c4c4;padding:0!important;text-align:left;box-shadow:0 4px 12px rgba(0, 0, 0, 0.4), 0 1px 0 rgba(255, 255, 255, 0.5) inset;border-radius:10px;}
+a.pluso-overlay-close,a.pluso-overlay-close:hover,a.pluso-overlay-close:visited{position:absolute;left:50%;margin:0 0 0 442px;top:38px;width:26px;height:26px;text-align:center;font:normal 20px/22px Arial;padding:0;color:#878787;text-decoration:none;background:#ffffff;border-radius:26px;border:2px solid #c4c4c4;-webkit-box-sizing: border-box;-moz-box-sizing: border-box;box-sizing: border-box;}
+a.pluso-overlay-close:hover{background:#7f7f7f;color:#ffffff;border-color:transparent}
+.pluso-overlay-box div{margin:20px 0 0 0;padding:0 0 12px 0;border-bottom:1px solid #c4c4c4;}
+.pluso-overlay-box ul{list-style:none;margin:10px 0 10px 0px;padding:0;height:85%;overflow:auto;}
+.pluso-overlay-box li{width:210px;height:260px;background:#ffffff;border-radius:10px;border:none;float:left;padding:0;margin:0 0px 10px 10px;}
+.pluso-overlay-box li a{display:block;text-decoration:none;margin:0;padding:0;height:100%;overflow:hidden;position:relative;}
+.pluso-overlay-box li a span, .pluso-overlay-box li a:hover span{position: relative;width: 190px;height:150px;border:1px solid #c4c4c4;overflow:hidden;margin:10px auto 5px auto;padding:0;text-align:center;display:block;}
+.pluso-overlay-box li a:hover span{box-shadow:0 0 5px #c4c4c4;-webkit-box-shadow:0 0 5px #c4c4c4;border:1px solid #c4c4c4}
+.pluso-overlay-box li a em{font:normal bold 15px/20px Arial;float:left;color:#e86340;padding:0px 0 0 10px;margin:0;}
+.pluso-overlay-box li a em u{font:normal normal 12px/12px Arial;text-decoration:none;display:block;color:#eb6338;padding:0;margin:0;}
+.pluso-overlay-box li a strong{font:normal 11px/14px Arial;display:block;padding:0 10px;color:#454545;position:relative;bottom:auto;height:42px;width:180px;overflow:hidden;margin:0 0 5px 0;border:0;}
+.pluso-overlay-box li a:hover strong{height:42px;overflow:auto;padding:0 10px;border:0;}
+.pluso-overlay-box li a b, .pluso-overlay-box li a b:hover, .pluso-overlay-box li a b:active{font:bold normal 15px/18px Arial, sans-serif;color: #ffffff;padding-top: 7px;padding-right: 12px;padding-bottom: 7px;padding-left: 12px;text-decoration: none;-webkit-border-radius: 5px;-moz-border-radius: 5px;border-radius: 5px;-webkit-box-shadow: inset 0px -1px 2px rgba(255,255,255,.5);-moz-box-shadow: inset 0px -1px 2px rgba(255,255,255,.5);box-shadow: inset 0px -1px 2px rgba(255,255,255,.5);text-shadow: 0px 1px 2px #3d8a33;border:solid #4bb543 1px;background:-webkit-gradient(linear, 0 0, 0 100%, from(#95e488), to(#20a517));background: -moz-linear-gradient(top, #95e488, #20a517);background: -o-linear-gradient(top, #95e488, #20a517);-ms-filter: progid:DXImageTransform.Microsoft.gradient(startColorStr=#95e488, endColorStr=#20a517);filter: progid:DXImageTransform.Microsoft.gradient(startColorStr=#95e488, endColorStr=#20a517);display:inline-block;float:right;bottom:auto;right:10px;position:relative;}
+.pluso-overlay-box li a b:hover{background:-webkit-gradient(linear, 0 0, 0 100%, from(#b1f4a3), to(#27c21c));background: -moz-linear-gradient(top, #b1f4a3, #27c21c);background:-o-linear-gradient(top, #b1f4a3, #27c21c);-ms-filter: progid:DXImageTransform.Microsoft.gradient(startColorStr=#b1f4a3, endColorStr=#27c21c);filter: progid:DXImageTransform.Microsoft.gradient(startColorStr=#b1f4a3, endColorStr=#27c21c);}
+.pluso-overlay-box li a b:active{background:-webkit-gradient(linear, 0 0, 0 100%, from(#20a517), to(#95e488));background: -moz-linear-gradient(top, #20a517, #95e488);background:-o-linear-gradient(top, #20a517, #95e488);-ms-filter: progid:DXImageTransform.Microsoft.gradient(startColorStr=#20a517, endColorStr=#95e488);filter: progid:DXImageTransform.Microsoft.gradient(startColorStr=#20a517, endColorStr=#95e488);}
+.pluso-010010101001-01 .pluso-wrap a{ background-image:url("01.png") }.pluso-010010101001-01 .pluso-wrap a.pluso-market-cart, .pluso-010010101001-01 .pluso-wrap a.pluso-market-cart-animate{ background:url("") -0px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-market-cart-animate{animation: pluso-market-animate 3s linear infinite alternate;-webkit-animation: pluso-market-animate 3s linear infinite alternate;}.pluso-010010101001-01 .pluso-wrap a.pluso-market-dollar, .pluso-010010101001-01 .pluso-wrap a.pluso-market-dollar-animate{ background:url("") -42px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-market-dollar-animate{animation: pluso-market-animate 3s linear infinite alternate;-webkit-animation: pluso-market-animate 3s linear infinite alternate;}.pluso-010010101001-01 .pluso-wrap a.pluso-market-bulb, .pluso-010010101001-01 .pluso-wrap a.pluso-market-bulb-animate{ background:url("") -84px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-market-bulb-animate{animation: pluso-market-animate 3s linear infinite alternate;-webkit-animation: pluso-market-animate 3s linear infinite alternate;}.pluso-010010101001-01 .pluso-wrap a.pluso-market-quest, .pluso-010010101001-01 .pluso-wrap a.pluso-market-quest-animate{ background:url("") -126px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-market-quest-animate{animation: pluso-market-animate 3s linear infinite alternate;-webkit-animation: pluso-market-animate 3s linear infinite alternate;}.pluso-010010101001-01 .pluso-wrap a.pluso-market-tag, .pluso-010010101001-01 .pluso-wrap a.pluso-market-tag-animate{ background:url("") -168px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-market-tag-animate{animation: pluso-market-animate 3s linear infinite alternate;-webkit-animation: pluso-market-animate 3s linear infinite alternate;}.pluso-box a b{ background-image:url("") }.pluso-box a.pluso-market b{ background:url("") -21px 0}.pluso-box a.pluso-vkontakte b{ background-position: -84px 0}.pluso-box a.pluso-odnoklassniki b{ background-position: -63px 0}.pluso-box a.pluso-facebook b{ background-position: -0px 0}.pluso-box a.pluso-twitter b{ background-position: -21px 0}.pluso-box a.pluso-google b{ background-position: -126px 0}.pluso-box a.pluso-moimir b{ background-position: -147px 0}.pluso-box a.pluso-pinterest b{ background-position: -105px 0}.pluso-box a.pluso-livejournal b{ background-position: -168px 0}.pluso-box a.pluso-tumblr b{ background-position: -42px 0}.pluso-box a.pluso-liveinternet b{ background-position: -189px 0}.pluso-box a.pluso-springpad b{ background-position: -210px 0}.pluso-box a.pluso-stumbleupon b{ background-position: -231px 0}.pluso-box a.pluso-myspace b{ background-position: -252px 0}.pluso-box a.pluso-formspring b{ background-position: -273px 0}.pluso-box a.pluso-blogger b{ background-position: -294px 0}.pluso-box a.pluso-digg b{ background-position: -315px 0}.pluso-box a.pluso-surfingbird b{ background-position: -336px 0}.pluso-box a.pluso-bobrdobr b{ background-position: -357px 0}.pluso-box a.pluso-readability b{ background-position: -378px 0}.pluso-box a.pluso-instapaper b{ background-position: -399px 0}.pluso-box a.pluso-evernote b{ background-position: -420px 0}.pluso-box a.pluso-delicious b{ background-position: -525px 0}.pluso-box a.pluso-vkrugu b{ background-position: -504px 0}.pluso-box a.pluso-pinme b{ background-position: -546px 0}.pluso-box a.pluso-yandex b{ background-position: -567px 0}.pluso-box a.pluso-yazakladki b{ background-position: -588px 0}.pluso-box a.pluso-moikrug b{ background-position: -609px 0}.pluso-box a.pluso-googlebookmark b{ background-position: -630px 0}.pluso-box a.pluso-yahoo b{ background-position: -651px 0}.pluso-box a.pluso-moemesto b{ background-position: -672px 0}.pluso-box a.pluso-memori b{ background-position: -693px 0}.pluso-box a.pluso-juick b{ background-position: -735px 0}.pluso-box a.pluso-linkedin b{ background-position: -756px 0}.pluso-box a.pluso-webdiscover b{ background-position: -798px 0}.pluso-box a.pluso-bookmark b{ background-position: -441px 0}.pluso-box a.pluso-email b{ background-position: -462px 0}.pluso-box a.pluso-print b{ background-position: -483px 0}.pluso-box a.pluso-webmoney b{ background-position: -924px 0}.pluso-box a.pluso-misterwong b{ background-position: -903px 0}.pluso-box a.pluso-friendfeed b{ background-position: -882px 0}.pluso-box a.pluso-market b{ background-position: --21px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-google{ background-position: -252px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-facebook{ background-position: -0px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-twitter{ background-position: -42px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-email{ background-position: -924px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-pinterest{ background-position: -210px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-linkedin{ background-position: -1512px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-googlebookmark{ background-position: -1260px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-print{ background-position: -966px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-digg{ background-position: -630px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-vkontakte{ background-position: -168px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-odnoklassniki{ background-position: -126px 0}</style><style type="text/css">.pluso-010010101001-01 .pluso-wrap a.pluso-google{ background-position: -252px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-facebook{ background-position: -0px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-twitter{ background-position: -42px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-email{ background-position: -924px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-pinterest{ background-position: -210px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-linkedin{ background-position: -1512px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-googlebookmark{ background-position: -1260px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-print{ background-position: -966px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-digg{ background-position: -630px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-vkontakte{ background-position: -168px 0}.pluso-010010101001-01 .pluso-wrap a.pluso-odnoklassniki{ background-position: -126px 0}</style></body>
 </html>
